@@ -1,0 +1,18 @@
+---
+master_file: "[[@SriniKalyanaramanTwoa]]"
+---
+# Index for Srini Kalyanaraman – Two examples of Amulet seals or Compartmental seals (Mohenjo-daro, Bagasra) with additional info. on a copper tablet to complete the Bill of Lading.pdf
+
+1
+Two examples of Amulet seals or Compartmental seals (Mohenjo-daro, Bagasra) with additional info. on a copper tablet to complete the Bill of Lading
+Two examples of Amulet seals or Compartmental seals (Mohenjo-daro, Bagasra) with additional info. on a copper tablet to complete the Bill of Lading. These are stunning examples of the versatility of the Sarasvati-Sindhu Civilization artisans and seafaring merchants who devised new techniques of communicating messages using the powerful messaging tool of Indus Script.
+This is an addendum to: Gola Dhoro (Bagasra) compartmented seal is a metallurgy certification for cargo of a seafaring catamaran https://tinyurl.com/ya59vohw
+If the compartment of this Gola Dhoro (Bagasra) or a similar compartment of a Mohenjodaro seal held a copper tablet or a clay tablet, there are two possibilities: 1) the inserted tablet may signify information additional to the detail provided by the Indus Script inscription on the compartmental seal; and 2) the tablet may have contained cuneiform text in case the message was intended to be transmitted (through the Meluhha merchant agent) to the nonMeluhha speaking buyer of the products detailed in the trade transaction. A third tantalising possibility is that the names of sender and receiver may have been recorded on the tablet, like a forwarding letter to the seal itself with additional bill of lading info.
+The decipherment of bagasra comparemental seal has shown that the seal signifies metalwork of: unsmelted metal, bronze, implements and furnace work/metal castings in a mint.
+Only a few specimens of this unicorn amulet-type seal have been found. One was during Marshall's excavations at Mohenjo-daro in the 1920s (top), another at Gola Dhoro/Bagasra a few years ago (bottom,
+
+
+
+2
+colour). https://www.harappa.com/goladhoro/bagasraseal.html?fbclid=IwAR3sFQFGfn5NwSutGrcI8 bkOD98HD-9nGKvKvfBNDdntkjAvNlDSZeVTwD4 It appears to have been worn around the neck, and have had room for something to be put inside.
+Although Marshall himself did not favour the amulet theory, he wrote of one of these seals: "The amulet theory finds some support, however, in the shape of . . . [a] seal [which] measures 0.77 in. square and 0.3 in. thick, excluding its boss. The interior has been carefully hollowed out to form a compartment measuring 0.65 in. square by 0.1 in. deep. This little chamber was formerly closed by a sliding cover that fitted into grooves closed fitted into grooves cut into two sides of the seal. Practically all the face of the seal is missing, but enough remains to show that the animal represented on it was the unicorn and that there was the usual line of inscription above it. . . Owing to its necessarily small size, the compartment would be of little use except to hold a sacred object. This may have been an inscribed copper tablet, similar to the many found at Mohenjo-daro, or an inscription written on some material such as bark or leather, which could conveniently be folded up small. This type of seal would, like the Egyptian scarab, serve the dual purpose of amulet and seal." (Marshall, Mohenjo-daro, p. 382-3). Source: Unicorn Amulet seal By StephanieV. December 15th, 2014https://www.harappa.com/blog/unicorn-amulet-seal

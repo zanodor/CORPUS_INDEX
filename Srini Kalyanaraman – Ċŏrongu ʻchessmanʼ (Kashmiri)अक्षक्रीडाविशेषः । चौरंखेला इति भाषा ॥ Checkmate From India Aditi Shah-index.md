@@ -1,0 +1,52 @@
+---
+master_file: "[[@SriniKalyanaramanCorongu]]"
+---
+# Index for Srini Kalyanaraman – Ċŏrongu ʻchessmanʼ (Kashmiri)अक्षक्रीडाविशेषः । चौरंखेला इति भाषा ॥ Checkmate From India Aditi Shah.pdf
+
+1
+ċŏ rongu ʻchessmanʼ (Kashmiri)अक्रक्षीडाविशेषः ।
+चौरं खेला इवि भाषा ॥ Checkmate From India -- Aditi
+Shah
+चतुरं ङ्ग 1 a complete army consisting of elephants, chariots, cavalry and
+infantry; चिुरङ्गसमायुंक्त मया सह च िं नय Rām.1.20. 10; एको वह खञ्जनिरो नवलनीदलस्थो दृष्टः करोवि चिुरङ्गबलाविपत्यम् Ś. Til.4; चिुरङ्गबलो राजा जगिीं िशमानयेि् । अहं पञ्चाङ्गबलिाना - काशं िशमानये ॥ Subhāṣ. -2 a sort of chess.(Apte) cáturaṅga ʻ having four limbs ʼ RV., ʻ consisting of four parts (of an army) ʼ MBh., n. ʻ a kind of chess ʼ Tithyād. [catur -- , áṅga -- ]
+Pa. caturaṅga -- ,  ̊gin -- ,  ̊gika -- ʻ fourfold ʼ; Pk. caüraṁga -- ,  ̊gi -- , cāuraṁga -- ʻ having four divisions ʼ; K. ċŏ rongu m. ʻ chessman ʼ; P. curaṅg m. ʻ tying the four limbs together (before cutting off a goat's head) ʼ; H. cauraṅg m. ʻ cutting off four legs of an animal at one blow ʼ, c ̊ mārnā ʻ to hamstring ʼ; M. ċaurã g m. ʻ square stool ʼ, ċaurã gṇẽ ʻ to lop off hands and feet ʼ; Si. sivran̆ ga -- keli ʻ chess ʼ.Addenda: cáturaṅga -- : A. caurāṅgi (phonet. s -- ) ʻ prostration (i.e. with arms and legs on the ground) ʼ.(CDIAL 4596)
+चतुरं ङ्ग , क्ली , (चत्वारर अङ्गावन यस्य ।) हश्वस्त्य -रथपदाविरूपं सैन्यम् । यथा, रामायणे ।“चिुरं ङ्ग ह्यवप बलं सुमहि् प्रसहेमवह ।”अक्षक्रीडाविशेषः । चौरंखेला इवि भाषा ॥यथा, --युविविर उिाच ।“अष्टकोष्ठ्याञ्च या क्रीडा िां मे ूब्रवह िपोिन ! ।प्रकषेणैि मे नाथ चिूराजी यिो भिेि् ॥व्यास उिाच ।अष्टो कोिान् समावलख्य प्रदवक्षणक्रमेण िु ।अरुणं पूबर्ब्िः कृ त्वा दवक्षणे हररिं बलम् ॥पाथब ! पविमिः पीिमुत्तरे श्यामलं बलम् ।राज्ञो िामे गजं कु र्य्ाब ि् िस्मादंश्व ििस्तररम् ॥कु र्य्ाबि् कौेन्तय ! पुरिो येुद्ध पवत्तचिुष्टयम् ।कोणे नौका वििीयेऽृश्वस्तिीये िु गजो िसेि् ॥िुरीये च िसेद्राजा िविकाः पुरिः स्थिाः ॥पञ्चके न ििी राजा च ेिुष्कणैि कु ञ्जरः ॥विके ण िु चलत्यश्वः पाथब ! नौकाियेन िु ॥कोिमेकं विल् ङ्घयाथ सबर्व्िो यावि भूपविः ।अग्र एि ििी यावि बलं हन्त्यग्रकोणगम् ।यथंेष्ट कु ञ्जरो यावि चिबुुक्षर्द् महीपिे ! ॥विबर्य्क् िुरङ्गमो यावि लङ्घवयत्वा विकोिकम् ।कोणकोिियं ल् ङ्घय व्रजेन्नौका युविविर ! ॥वसंहासनं चिूराजी नृपाकृ ुन्तष्ट षि्पदम् ।काककािं बृहन्नौका नौकाकृ प्रष्टकारकम् ॥घािाघािे ििी नौका बलं हस्न्त युविविर ! ।राजा गजो हयिावप त्यक्त्वा घािं वनहस्न्त च ॥अंत्यन्त स्वबलं रेक्षि् स्वराजा बलमुत्तमम् ।अल्पस्यारक्षया पाथं ! हंन्तव्य बलमुत्तम् ॥नौकायाित्वारर पदावन अश्वस्याष्टौ पदावनइत्याविक्य मश्वस्य ॥मिङ्गजस्य गेर्व्ण राजा क्रीडवि वनभबरम् ।िस्माि् सबर्व्बलं दत्त्वारक्ष कौेन्तय ! कु ञ्जरम् ॥वसंहासनं चिूराजी यदिस्थानिो भिेि् ।सबर्व्सैैन्यगबजैिाबवप रवक्षिव्यो महीपविः ॥अन्यद्राजपदं राजा यदाक्रान्तो युविविर ! ।िदा वसंहासनं िस्य भण्यिे नृपसत्तम् ! ॥राजा च नृपविं हत्वा कु र्य्ाबि् वसंहासनं यदा ।विगुणं िाहयेि् पण्यमन्यथैकगुणं भिेि् ॥विगुणं पंण्य दािेव्यत्वन प्रापयेि् ॥वमिवसंहासनं पाथब यदारोहवि भूपविः ।िदा वसंहासनं नाम संर्व् नयवि िद्बलम् ॥यदा वसंहासनं कुंत्त राजा षिपदावििः ।िदा घािेऽवप हन्तव्यो बलेनावप सुरवक्षिः ॥विद्यमाने नृपे यि स्वकीये च नृपियम् ।प्राप्नोवि च िदा िस्य चिूराजी यदा भिेि् ॥नृपेणैि नृपं हत्वा चिूराजी यदा भिेि् ।विगुणं िाहयेि् पण्यमन्यथैकगुणं भिेि् ॥स्वपदस्थं यदा राजा राजानं हस्न्त पावथबि ।चिुरे ङ्ग िदा भूप ! िाहयेच्च चिुगुबणम् ॥यदा वसंहासने काले चिूराजी समुस्ििा ।चिूराजी भिेत्यि न िु वसंहासनं नृप ! ॥अिेदं बीजं उभयथा जयेऽवप परवसंहासनावि-काराि् परराजििे शौर्य्ाबविक्यवनष्कण्टकत्व -दशबनाि् । क्रीडायामवप िथा कल्प्यिे ॥ * ॥राजियं यदा हेस्त आत्मनो रावज्ञ संस्थिे ।परे ण संहृििैको बलेनायपहाबर्य्िे ॥राजियं यदा हेस्त न स्यादन्यकरे परः ।िदा राजा वह राजानं घािेऽवप िं हवनष्यवि ॥नृपाकृ ेष्ट यदा राजा गवमष्यवि युविविर ! ।घािाघािेऽवप हन्तव्यो राजा िि न रक्षकः ॥कोणं राजपदं त्यक्त्वा िविकांन्त यदा व्रजेि् ।ििी नयेि् पदं नाम िदा कोष्टबलं च षि् ॥यवद िस्य भिेि् पाथब ! चिूराजी च षि्पदम् ।िदावप च चिूराजी भिेत्यि न संशयः ॥पदािेः षि्पदे विेद्ध राज्ञा िा हस्स्तना िथा ।षि्पदं न भिेत्तस्य अिंश्य शृणु पावथबि ॥मप्तमे कोिके या स्याद्बविका दशके न िै
+
+
+
+2
+।िदान्योन्यञ्च हंन्तव्य सुखाय दुबर्ब् लं बलम् ॥विििीकस्य कौेन्तय ! पुरुषस्य कदाचन ।षिपदं न भिेत्यि इवि गोिमभावषिम् ॥नौकै का िविका यस्य विद्यिे खेलने यवद ।गाढाििीवि विख्यािा पदं िस्य न दुष्यवि ॥गाढाघात्यापदं राजपदं कोणपदञ्च िि् ।हेस्त रे ङ्ग बलं नास्स्त काककािं िदा भिेि् ॥िदस्न्त राक्षसाः सेर्व् िस्य न स्तो जयाजयौ ।प्रावथबिे पञ्चमे रावज्ञ मृििट्याञ्च षि्पदे ॥अशौचं स्यात्तदा राजन् ! चवलत्वा चावलिंपदम् ।वद्बरािृत्त्या गिौ िस्माद्धन्याि् परबलं जयी ॥वसंहासनं भिेत्यि काककािं न भण्यिे ॥उपविञ्चष्ट यि् स्थानं िस्योपररचिुष्टये ।नौकाचिुष्टयं यि वक्र यिे यस्य नौकया ॥नौकाचिुष्टयं िि बृहन्नौके वि भण्यिे ।न कु र्य्ाबदेकदा राजन् ! गजस्यावभमुखं गजम् ॥यवद कु र्व्ीि िबज्ञर्म् ! पापग्रस्तो भविष्यवि ।स्थानाभािे यदा पाथब ! हस्स्तनं हस्स्तसुर्म्खम् ॥कररष्यवि िदा राजवन्नवि गोिमभावषिम् ।प्राेप्त गजिये राजन् ! हन्त व्यो िामिो गजः ॥”इवि विथ्यावदिेत्त्व चिुरङ्गक्रीडनम् ॥--शब्द कल्प द्र ुमः
+Checkmate From India
+Aditi Shah March 20th 2018
+For the last 30 years, from the time he became India’s first grandmaster in 1988, Viswanathan Anand has been the face of chess, here in India and perhaps the world. Always popular, few however realise that this game of cool calculated moves and patience originated in India over 1600 years ago.
+Sir William Jones identified India as the birthplace of Chess and linked it to Chaturanga.
+Sir William Jones, founder of the Asiatic Society of Bengal, is popular among chess players as the author of ‘Caissa’ (The Goddess of Chess), a poem composed in 1763. An accomplished linguist who knew Arabic, Persian, and Sanskrit; it was he who first identified India as the birthplace of chess and linked its origins to a 4th century game ‘Chaturanga’ popular during the Gupta Empire. While evidence of board game pieces have been found in Harappan sites as well, there is a fair amount of debate on whether they are in any way ‘prototypes’ of chess.
+The renowned historian, Will Durant in his book ‘The Story of Civilization’ recounts an interesting legend he heard on the origins of Chaturanga. According to this, there was once a king named Balhait, who considered war as a great way of teaching valuable traits such as valour, decision making, endurance, and circumspection. Disapproving of the existing games based on luck and fate, emanating from the ‘roll of a dice’, he asked a sage named Sissa to invent a new war based game. The sage designed the Chaturanga.
+The name Chatruranga refers to the four (Chatur) divisions (anga) of ancient Indian armies infantry, cavalry, elephantry and chariotry. The pieces that evolved into pawn, knight, bishop and rook, represented these divisions. It was played on an 8×8 board called Ashtapada. However, beyond this, we know little of the rules of the game or how it was played.
+The early references to chess in Indian literature are only in passing and the earliest can be found in Banabhatta’s text Harsha Charita, a biography of King Harshavardhana of Kannuaj composed between 625 to 640 CE. A verse states
+During the 6th century, close trade ties between India and Persia took the game to Iran where it became popular as ‘Chatrang’. Apparently, the Persian text ‘Chatrang Nama’ composed
+
+
+
+3
+around 620 CE, states that a King of Kannauj sent Chaturanga as a gift to King Norshirwan of Persia, with chessmen comprising of 16 pieces of rubies and 16 pieces of emeralds.
+The oldest known Chess pieces ever discovered date back to 700 CE
+Following the conquest of Persia in the mid-7th century, the game began to be called ‘Shatranj’ as the Arabs could not pronounce the ‘Ch’ and ‘Ng’ sounds. With the Arabs, the game travelled to Egypt, Morocco and then Spain. By 1000 CE, it had spread to most of Europe as well as Russia. In Persia, when the King or ‘Shah’ was threatened and could not make a move, there was a practice to shout out ‘Shah Maat’ or the ‘King is defeated’. Curiously, the practice travelled with the game of Chess across regions, and soon became ‘Shakmaty’ in Russian and ‘Checkmate’ in English!
+Interestingly, the oldest known Chess pieces ever discovered date back to 700 CE. They were found in 1977, during an excavation carried out at Afrasiyab, near Samarkhand in Uzbekistan.
+In the East, Chaturanga was taken to China by the Buddhist monks through the Silk route. Around 800 CE, the Chinese adapted Chaturanga to create their own form of Chess, called the Shang-Chi also called the Chinese River Game, as there is a river in the middle of the Chess board. The main difference between this and chess, is that the Chinese version is played with discs instead of Chessmen and the pieces are kept on the intersection of lines, instead of within the squares like Chaturanga. From China, the game moved to Korea and Japan where it was called Shogi. Similarly, the Indian Buddhist monks had also taken Chaturanga to Burma and Thailand.
+It is incredible that each culture interpreted the game in its own way. The ways an elephant could move differed in the Indian, Burmese and Thai versions depending on the relative importance of war elephants in these countries. In China, the Indian chariot (or camel) became a boat. In Persia and the Arab world, Islamic prohibition on the depiction of animals and humans in art, led to the use of abstract forms as chess pieces, which we still use to this day. In Medieval Europe and Russia, the Mantri or Vizier became the Queen, camels became Bishops representing the power of the Church and pawns originally stood for serfs. The rules of the game kept changing and evolving across the regions and across time.
+Today, chess is a truly global game and there are super computers playing it! What a long road it has traversed from its origins in Gupta era India or the mythical sage Sissa. What has endured, through its long journey and many moves, is its eternal appeal!
+
+
+
+4
+Chaturanga pieces from South India | Pinterest
+Persian manuscript describing how an ambassador from India brought chess to the Persian court | Wikimedia Commons
+The oldest pieces ever discovered date back to 700 CE
+
+
+
+5
+The oldest known seven ivory chess pieces found at Afrasiyab in Uzbekistan | www.ancientchess.com
+Conventional chess pieces from the Arab world | www.ancientchess.com
+https://www.livehistoryindia.com/story/snapshort-histories/checkmate-from-india/

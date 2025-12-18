@@ -1,0 +1,119 @@
+---
+master_file: "[[@RozsadombiPaktumIIIpdf]]"
+---
+# Index for Rózsadombi paktum I-II.pdf
+
+2017. JANUÁR 31., KEDD
+21.835 - A rózsadombi paktum > Eredeti változat > Liberál-cionista változat > Paktum 1989-2003
+Feladó: Antal Fodor Dátum: 2017. január 31. 6:51 Tárgy: Paktum 1989-2003 Címzett: Jozsef@kutasi.eu
+http://magyarmegmaradas2.network.hu/club/magyarmegmaradas2/ blog/magyarorszag-magyarmegmaradas2 -hirei/hazaarulas-a-rozsadombi-paktum
+HAZAÁRULÁS ( A RÓZSADOMBI PAKTUM ) Tabányi Mihály
+A rózsadombi paktum Eredeti változat Liberál-cionista változat
+A paktum eredeti változata 1989-ből
+Íme a PAKTUM, amelyről nem lehet beszélni. Ez volt írásom kiinduló pontja. Most pedig közlöm a magyar népre erőszakolt gyalázatos szerződés szövegét. Egy otthoni publicista, mint Benedek István, nem teheti meg ezt saját jól felfogott érdekében, az Angliában élő Révffy László azonban a közelmúltban nyilvánosságra hozta ezt a megdöbbentő árulást.
+Főoldal
+Viccoldal
+ITT MEGTEKINTHETŐK:
+Képek Érkezett egyéb írások
+Érkezett költemények Videók, YouTube, Egyéb
+Kutasi József Antal képei
+https://www.google.hu/search? q=kutasi+jozsef+antal+versek&sa=N&espv=2&biw =1 < kÉPEKRE KATTINTANI! https://www.google.de/search? q=kutasi+j%C3%B3zsef&hl=en&prmd=imvns&t bm=i < kÉPEKRE KATTINTANI! https://www.google.hu/searchq=Ki+ez+a+Kutasi+ J%C3%B3zsef+Antal+%3E+1956.+okt%C3% < kÉPEKRE KATTINTANI!
+KUTASI JÓZSEF ANTAL HONLAPJA
+Kutasi József Antal az élet mestere! Kérem kimásolni és a keresőbe be illeszteni! https://mail.google.com/mail/u/0/? ui=2&ik=da0591207c&view=lg&msg=1596c8c26f e95073
+Kutasi József Antal az élet mestere! Kérem kimásolni és a keresőbe be illeszteni! http://kutasi.blogspot.hu/2017/01/21738-kutasijozsef-antal-az-elet.html
+Az életem útja! < kattintani!
+E-MAIL LEVELEK
+Erre a címre jozsef@kutasi.eu kérem az anyagokat,üzeneteket,megivókat,tájékoztatókat, és a személyes leveleket!
+jozsef@kutasi.eu
+More zanodor@gmail.com Dashboard Sign Out
+KUTASI JÓZSEF ANTAL
+Kattintani > FELADAT ÉS CÉL - AUFGABE UND ZIEL - MISSION AND GOAL Kattintani > Az összes bejegyzés tartalomjegyzéke 2007. szeptember 10.-től
+
+
+
+Szövegét Németországban élő barátom küldte el, azzal a kéréssel, hogy terjesszük a magyarság minél szélesebb köreiben. Kívánságának eleget teszek, mert teljesen egyet értek vele, hogy ezt mindenkinek meg kell ismerni. Írását azzal kezdi, hogy 1989 március 15-én, míg hazánk népe az első szabad emlékezést tartotta, egy budai villában titkos tárgyalás volt, amelyen a következők vettek részt: a távozó szovjet hadsereg tábornoka, a szovjet titkosrendőrség ezredese, az amerikai követség első titkára, a CIA egyik tisztje, az izraeli titkos szolgálat képviselője, a magyar római katolikus, a református, az izraelita egyház egy-egy megbízottja, és öt magyar politikai vezető, akik közül négy ma is vezető pozícióban van. Ők írták alá részünkről az ország szabad újjáépítésének tervét korlátozó diktátumot, amelynek értelmében kimennek ugyan a szovjet megszállók, de ezért súlyos árat kell fizetnünk. Értesülésem szerint Révffy László rövidesen nyilvánosságra hozza az aláírók neveit, hogy minden kételkedést oszlasson e feltételek hitelességével kapcsolatban, amelyek a következők:
+1. /A szovjet csapatok békés és barátságos kivonulása Magyarországról. 2. / A Szovjetunió kárpótlása a hátrahagyott épületekért és javakért. 3. /Barátságos politikai és gazdasági viszony kiépítése Szovjetunió és Magyarország között. 4. /Mindennemű szovjetellenes tevékenység megakadályozása. 5. /A határok kölcsönös megnyitása Szovjetunió és Magyarország között. 6. / A volt kommunista párttagok minden büntetés alól való mentesítése. 7. / A volt kommunisták titkosszolgálat, határőrség és rendőrség megvédésen az esetleges megtorlástól. 8. / A volt kommunisták más pártokban való indítása a választásokon. 9. / Az államvagyon átmentése a volt kommunisták kezébe. 10. / Az igazságszolgáltatás megtartása a volt kommunisták kezében. 11. / Minden zsidóellenes megnyilatkozás, megmozdulás és szervezkedés megtorlása. 12. / A jobboldali, vagy szélsőjobboldali pártok indulásának és szervezkedésének megakadályozása. 13. / Állandó hangoztatása annak, hogy a magyar határok véglegesek és azokon nem lehet változtatni. 14. / Az új magyar kormány nem tarthat kapcsolatot jobboldali emigrációs személyekkel, szervezetekkel és csoportokkal. 15. / Románok, Jugoszlávok és szlovákok felé csak barátságos nyilatkozatok láthatnak napvilágot. 16. / Az 1956-os eseményeket mint a kommunizmus megjavítását célzó mozgalmat kell beállítani és csak azokat szabad szóhoz juttatni, akik ezt így értelmezik. 17. / A magyar hadsereget egyharmadára kell csökkenteni. 18. / A Szovjetunió az átmentett kommunistákon keresztül megtartja politikai befolyását Magyarországon, az Egyesült Államok viszont megerősítheti gazdasági befolyását a magyar életben. 19. / Magyarország teljes garanciát ad a magyarországi nemzetiségek nyelvi, népi, kulturális, politikai és gazdasági jogainak gyakorlására. 20. / Magyarország teljesen kártalanítja a magyar zsidóságot a második világháború alatt elszenvedett veszteségeiért. Fenti megalázó feltételek a megfogalmazásukkor még köthették az aláírókat, de ma, a Szovjetunió, Jugoszlávia és Csehszlovákia összeomlása után semmi esetre sem. Akik 1998. március 15-én aláírták a fenti 20 pontot, még akkor sem mentesülhetnek a vádtól, ha kényszerhelyzetben tették ezt. Viszont ha 1992-ben a Közép- és Kelet Európai események után is érvényesnek tartják, akkor és a magatartás hazaárulásnak minősül, amiért törvény előtt kell felelniük. Íme a sokat emlegetett "paktum", amely mindeddig megakadályozta hazánk politikai átalakulását, és a magyar milliók emberi életnívójának a megteremtését, amely népünk fejlődésének és jövőjének alapfeltétele. A találkozó résztvevői: Antal József Horn Gyula Pető Iván Paskai László Göncz Árpád Zoltai Gusztáv Boross Péter
+A paktum liberális-cionista változata 2003-ból Második Rózsadombi paktum
+1. A szovjet csapatok békés és barátságos kivonulása Magyarországról. 1. A NATO és a leendő EU-hadsereg számára támaszpont és megfelelő haderő biztosítása. 2. A Szovjetunió kárpótlása a hátrahagyott épületekért és javakért. 2. További hitelek felvétele az IMF-től és a Világbanktól, a lakosság elszegényedésének folyamatos biztosítására. 3. Barátságos politikai és gazdasági viszony kiépítése a Szovjetunió és
+Oldal:
+L Á TO G AT Ó K
+DÁTUM ÉS IDŐ
+Budapest
+2:52:34AM
+11/24/2019
+KERESŐ FUNKCIÓ
+Keresés
+Háziáldás A tavasz susogása Pacsirta In Memoriam Tépjen szél
+1956 HANGJAI
+vissza a 3.794-es bejegyzésre
+VIDEÓK
+1. Emlékezés a kommunizmus
+1956 Hangjai - Török Lászl...
+
+
+
+Magyarország között. 3. EU-alárendeltként (tagországként) Izrael és az USA minden világgyarmatosítást szorgalmazó tevékenységének támogatása. 4. Mindennemű szovjetellenes tevékenység megakadályozása. 4. Mindennemű olyan tevékenység megakadályozása, amely a cionista diktatúra megdöntésére irányul. 5. A határok kölcsönös megnyitása a Szovjetunió és Magyarország között. 5. Az EU antidiszkriminációs és a "szabad letelepedésre" vonatkozó törvényeinek következetes betartása. 6. A volt kommunista párttagok minden büntetés alól való mentesítése. 6. A politikai és gazdasági elit (továbbiakban: VIP-tagok) vagyonelszámoltatásának a méltányosság és a diszkrimináció-mentesség elve alapján kell történnie. 7. A volt kommunista titkosszolgálat, határőrség és rendőrség megvédése az esetleges megtorlástól. 7. A VIP-tagoknak, valamint az 1990 óta (bármelyik) kormánypárti országgyűlési képviselőként tevékenykedők megvédése az esetleges megtorlásoktól. 8. A megbízható volt kommunisták más pártokban való indítása a választásokon. 8. A 6. pont szerinti felelősségrevonástól mentesülő VIP tagok az "új ellenzék" tagjaiként indulnak a választásokon. 9. Az államvagyon átmentése a volt kommunisták kezébe. 9. A multinacionális cégek vagyonszerzésének és vagyonmegtartásának minden eszközzel történő biztosítása. 10. Az igazságszolgáltatás megtartása a volt kommunisták kezében. 10. Az igazságszolgáltatás megtartása a 6. pont szerinti felelősségrevonás alól mentesült személyek kezében. 11. Minden zsidóellenes megnyilatkozás, megmozdulás és szervezkedés megtorlása. 11. Minden anticionista szervezkedést, megnyilatkozást, megmozdulást antiszemitaként feltüntetve gyűlöletkeltővé kell minősíteni, és a résztvevőket ez alapján példás szigorral kell elítélni. 12. A jobboldali vagy szélsőjobboldali pártok indulásának és szervezkedésének megakadályozása. 12. Meg kell akadályozni minden olyan társadalmi szervezet és párt létrejöttét, amely a cionista diktatúra megdöntését célozza alapító okirata szerint, és meg kell szüntetni - alapító okiratában foglaltaktól függetlenül -, ha tevékenysége a cionista diktatúra megdöntésére irányul. 13. Állandó hangoztatása annak, hogy a magyar határok véglegesek, és azokon nem lehet változtatni. 13. Állandó hangoztatása annak, hogy a magyar határok az EU-ban virtualizálódnak, tehát sem az állampolgárságnak, sem a határok elhelyezkedésének nincs jelentősége. 14. Az új magyar kormány nem tarthat kapcsolatot jobboldali emigrációs személyekkel, szervezetekkel és csoportokkal. 14. Az új magyar kormány nem tarthat kapcsolatot olyan magyarországi vagy emigrációs szervezetekkel és személyekkel, amelyek a cionista diktatúra ellenzői. 15. A románok, a jugoszlávok és a szlovákok felé csak barátságos nyilatkozatok láthatnak napvilágot. 15. A Trianoni utódállamokkal (és azok utóállamaival) történő kapcsolatoknak minden esetben az egyoldalú engedményadás elvén kell állniuk. 16. Az 1956-os eseményeket, mint a kommunizmus megjavítását célzó mozgalmat kell beállítani, és csak azokat szabad szóhoz juttatni, akik ezt így értelmezik. 16. Az 1848-as és 1956-os eseményeket úgy kell beállítani, hogy azok az új kormány eszmei elődei. 17. A magyar hadsereget egyharmadára kell csökkenteni. 17. A magyarországi katonaság célja a NATO és az EU-hadsereg kiszolgálása, ezért az általunk megkövetelt feltételeknek kell eleget tennie. Minden nemzetvédelmi feladatot - ezért a "honvéd" megnevezést meg kell tiltani. 18. A Szovjetunió az átmentett kommunistákon keresztül megtartja politikai befolyását Magyarországon, az Egyesült Államok viszont megerősíti gazdasági befolyását a magyar életben. 18. A cionista diktatúra az átmentett VIP-tagokon keresztül gyakorolja politikai befolyását Magyarországon. Minden, a magyar nemzeti érdekek cionista érdekek fölé helyezését célzó tevékenységet, hagyományápolást és történelemkutatást meg kell tiltani, ami a magyarság elfogadott eredetét és vallását vonja kétségbe. 19. Magyarország teljes garanciát ad a magyarországi nemzetiségek nyelvi, népi, kulturális, politikai és gazdasági jogainak gyakorlására. 19. Magyarország az EU-Alkotmány szerint "európai" embertípus kialakulását szorgalmazza. A magyar és a magyarországi nemzetiségek
+áldozataira
+2. 1956 hangjai
+3. Pálos emléknap
+4. Magyar néptánc
+5. Kívánságkosár: Köszönetmondás
+BEJEGYZÉSEK
+► 2018 (466)
+▼ 2017 (1017)
+► december (92)
+► november (97)
+► október (44)
+► szeptember (71)
+► augusztus (40)
+► július (44)
+► június (95)
+► május (131)
+► április (149)
+► március (26)
+► február (115)
+▼ január (113)
+21.842 - ITT A WEBOLDAL, AMIVEL A VILÁG BÁRMELY UT...
+21.841 - Budapesten a fél várost lezárják Putyin é...
+21.840 - Veronai tragédia: A buszvezető figyelmetl...
+21.839 - Haraszti Katalin: A bojkottálandó országo...
+21.838 - Ténytár: Az MSZP nem fog összefogni a Job...
+21.837 - Lipták Béla: NEM KELL második állampolgár...
+21.836 - Békekör Magyar > Lavrov: Oroszország és a...
+21.835 - A rózsadombi paktum > Eredeti változat > ...
+21.834 - MINDJÁRT JÖN A CSALÁDI PÓTLÉK ÉS EZEKET A...
+21.833 - (Hungarian-Lobby,461) Beethoven koncert k...
+21.832 - Ódor Tünde Enéh: ....tervezőgrafikusként ...
+
+
+
+Újabb bejegyzés Régebbi bejegyzés
+nyelvi, népi, kulturális és hagyományőrzését a kozmopolitizmus szellemében "liberálisan" biztosítja. 20. Magyarország teljesen kártalanítja a magyar zsidóságot a második világháború alatt elszenvedett veszteségeiért. 20. Magyarország be- és visszafogadja és az EU-Alkotmány "harmadik országbeliek" letelepedésére vonatkozó törvényei szerint ad jogot a zsidóságnak arra, hogy Magyarországot, mint államalapító, hazájának tekintsék. Budapest, Rózsadomb, 1989. március 15. Budapest 2003. május 28-a és július 9-e között
+Antall József, Boross Péter, Göncz Árpád, Horn Gyula, Pető Iván, Paskai László, KGB, Zoltai Gusztáv (MaZsiHisz), CIA
+BEJEGYEZTE: NÉVTELEN - IDŐPONT: 10:26
+Főoldal
+21.831 - Életrajz: Rőczey János, Johannes = J.J.R....
+21.830 - Mihályfalvi János: ÚJ! OTT FOGSZ MAJD SÍR...
+21.829 - Bartha Szabó József: Az Alkotmánybíróság ...
+21.828 - Magyarok Világszövetsége: Fájdalmas búcsú...
+21.827 - Gaudi-Nagy Tamás: Újabb tíz gárdistának í...
+21.826 - Mélymagyar: Tájékoztatást adott Szijjártó...
+21.825 - Magyar Tudat Nemzeti Hírportál: Donald Tr...
+21.824 - EINLADUNG zur Buchvorstellung "Die Eifers...
+21.823 - Lovas István: Trump amerikai elnök első m...
+21.822 - Propeller: Hiába a CSÓK, így sincs pénz ú...
+21.821 - Dr. Morvai Krisztina: Ki képviseli a vörö...
+21.820 - Elképesztően magas összegre bírságolja a ...
+21.819 - Kovács János: Európa negyedik legkorrupta...
+21.818 - Morvai Krisztina: Még egyszer köszönöm, h...
+21.817 - Magyar Békekör: nemzeti érdek a szorosabb...
+21.816 - Gergely Márta: Hogyan lehet az, hogy Olas...
+21.815 - Magyarok Világszövetsége: Balog Zoltánnak...
+21.814 - Több tényező is közrejátszhatott a péntek...
+21.813 - ITT A HIVATALOS KÖZLEMÉNY A CSALÁDI PÓTLÉ...
+21.812 - Dr. MORVAI KRISZTINA helyszíni tudósítása...
+21.811 - Nemzeti Hírhaló: Miért nem nyilvános a je...
+21.810 - Patrubány Miklós januári nemzetpolitikai ...
+21.809 - Pethő István: 16 HALOTTHOZ RÉSZVÉTRE > 20...
+21.808 - Dr. Eva Maria Barki: Mutassuk ki az együt...
+21.807 - Dr. Gaudi-Nagy Tamás ügyvéd:

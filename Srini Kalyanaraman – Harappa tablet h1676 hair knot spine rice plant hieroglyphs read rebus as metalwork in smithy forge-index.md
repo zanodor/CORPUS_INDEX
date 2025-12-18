@@ -1,0 +1,15 @@
+---
+master_file: "[[@SriniKalyanaramanHarappad]]"
+---
+# Index for Srini Kalyanaraman – Harappa tablet h1676 hair knot spine rice plant hieroglyphs read rebus as metalwork in smithy forge.pdf
+
+Harappa tablet h1676 hair-knot, spine, rice plant hieroglyphs read rebus as metalwork in smithy, forge
+Seal fragment of a man with double bun and three fingered hand or trident. Trench 39 North, upper levels, Harappa Phase. https://www.harappa.com/indus2/160.html
+h1676 The ~ hieroglyph may be a variant of 'spine' hieroglyph Sign 48
+
+
+
+Sign 48 variants The rebus Meluhha readings of hieroglyphs: singhin 'forward-thrusting, spinyhorned' rebus: singi 'ornament gold' PLUS khoṇḍa 'young bull' (Marathi) rebus: koṇḍa 'pit with live coals, sacred altar' (Kannada) konda 'kiln, furnace' (Kashmiri) Spine hieroglyph: khār खार 'backbone, spine' rebus: khār खार् 'blacksmith'.baraḍo = spine; backbone (Tulu) rebus: baran, bharat 'mixed alloys' (5 copper, 4 zinc and 1 tin) (Punjabi.Marathi). The 'rice-plant' hieroglyph is ligatured to upraised arm: eraka 'upraised arm' rebus: eraka 'metal infusion,metal casting' PLUS kolmo 'rice plant' rebus: kolimi 'smithy, forge'. Thus, metal infusion smithy, forge. The standing person has hair-knots which are semantic determinatives: Ta. koṇtai tuft, dressing of hair in large coil on the head, crest of a bird, head (as of a nail), knob (as of a cane), round top. Ma. koṇṭa tuft of hair. Ko. goṇḍ knob on end of walking-stick, head of pin; koṇḍ knot of hair at back of head. To. kwïḍy Badaga woman's knot of hair at back of head (< Badaga koṇḍe). Ka. koṇḍe, goṇḍe tuft, tassel, cluster. Koḍ. koṇḍe tassels of sash, knob-like foot of cane-stem. Tu. goṇḍè topknot, tassel, cluster. Te. koṇḍe, (K. also) koṇḍi knot of hair on the crown of the head. Cf. 2049 Ta. koṭi. / Cf. Skt. kuṇḍa- clump (e.g. darbha-kuṇḍa-), Pkt. (DNM) goṇḍī- = mañjarī-; Turner, CDIAL, no. 3266; cf. also Mar. gō ḍā cluster, tuft.(DEDR 2081) rebus: koṇḍa 'pit with live coals, sacred altar'.
+The seal fragment H98-3505/8347-105 is number H-1676 A in CISI-3 appearing on pages 235 (B+W) and 365 (Color) in Parpola, Asko, B.M. Pande, and Pitteri Koskikallio (2010) Corpus of Indus Seals and Inscriptions, Volume 3: New material, untraced objects, and collections outside India and Pakistan, Part 1: Mohenjo-daro and Harappa. Helsinki: Suomalainen Tiedeakatemia.
+Steatite seal, intaglio. White fired steatite with a white core. Red speckling on interior below glaze level, slightly speckled on surface. Grinding marks visible on surface. Fragment of writing and top of animal motif remain - 2 or 3 signs are partially visible and 1 sign is complete (~”N”). The man with a double-bun hair style may be holding a trident or simply raising his hand. The animal motif is probably a tiger because of the multiple strokes. Anthropomorphic sign and animal direction facing to left (in impression) are rare.
+Comment by SK: The animal is a 'unicorn' with a prominent ear and rings on neck commonly shown on thousands of 'one-horned young bull' field symbols on inscriptions.

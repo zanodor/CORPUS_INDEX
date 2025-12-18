@@ -1,0 +1,1530 @@
+---
+master_file: "[[@SzecsiLeventeHispaniai]]"
+---
+# Index for Szécsi Levente – A hispániai gnosztikus, zsidó és muszlim okkultizmus.pdf
+
+A hispániai gnosztikus, zsidó és muszlim okkultizmus
+Nagy vonalakban a Spanyol Inkvizíció legfőbb oka az
+Alumbrados volt, akiket latinul Illuminátusoknak neveznek. Ez
+a mozgalom egyfajta továbbélése volt a katharizmusnak,
+vagyis az ősi gnosztikus-kereszténységnek, továbbá
+kabbalista zsidók és okkult muszlimok is működtek a
+térségben. Ezen okkultisták, bár titokban működtek, de nincs
+kizárva, hogy sok esetben találkoztak, értekeztek, vagy
+eszmét cseréltek, annak ellenére, hogy különböző vallásúak
+voltak. Nem szabad elfelejteni, hogy a Templomos Lovagrend
+életben maradt tagjai, akárcsak a katharok, titokban működtek
+tovább, mint titkos társaság. A spanyolországi templomosok
+állhattak az Alumbrados élén. Továbbá a Rózsakeresztes
+Rend is titokban működött, így őket is ezen csoporthoz kell
+sorolni.
+
+
+
+Tomás de Torquemada (Kr. u. 1420-1498)
+főinkvizítor és zsidó-üldöző
+
+
+
+A kabbalista zsidók elűzésének tervét Tomás de Torquemada
+(Kr. u. 1420-1498) főinkvizítor dolgozta ki, majd pedig Kr. u.
+1492-ben be is következett. Fontos megjegyezni, hogy ekkor
+nem csak a zsidókat űzték ki, hanem a muszlim mórokat is.
+,,Kabbalah-héberhagyomány-általánosértelembentanítás
+továbbadása.Szűkebbértelembenazsidóságtitkos,
+misztikustanítása,melyetszerzőiatalmudistáktól
+származtattak.Provenceban(Franciaország)Kr.u.1150
+1250-benalakultkiésHispániafeléterjedtel,saKr.u.16.
+századvégénszéleskörbenelismertvallásimozgalomlett.
+1.AKabbalahProvenceban.AKr.u.13.századiKabbalah
+klasszikusművénekszámítottaBahir-könyv.,melyetaJób
+37,21-benszereplőBahir(világos,tiszta)szórólneveztekel,
+mertakönyvezzelaszentírásihellyelkezdődik.Többrégi
+munkagyűjt-e,melymárelfeledettzsidógnosztikuselemeket
+tartalmaz.Nemegykézműve,Kr.u.1200körülzárhattákle.A
+provenceizsidóságfejlődésénekcsúcspontján,aKr.u.12-13.
+századbanakeresztényésazarabműveltséghatáránélt.A
+Tibbonidacsaládtagjaiazsidóésarabszerzőklegfontosabb
+vallásfilozófiaimunkáithéberrefordította.Efordítások
+hatásátkilehetmutatniakoraikabbalistákgondolkodásából.
+EkörbőlszármazikamisztikusélményeketistartalmazóIllés
+kinyilatkoztatásai.Anémetországihasszideusokaszkétái,a
+keresztényvaldiak,katarokésalbigensektanításanagy
+hatássalvoltrájuk.
+2.AKabbalahHispániában.AKabbalahProvenceból
+Burgosba,GeronábaésToledóbajutottel,ahonnanazegész
+Ibériai-félszigetenelterjedtaKr.u.13.századvégén.Főműve
+aZóhárkönyv(Dán12,3alapjánragyogóvilágosság),mely5
+kötetbőlálléskülönbözőkiadásaiismertek.Csaka4.kötet
+egységesmű,atöbbitkisebbrészekbőlillesztettékössze.
+SzerzőjénekaKr.u.2.századbanéltSimonbarJochajt
+tartották,valódiszerzőjeMozesdeLeón,akialegnagyobb
+résztfüzetenkéntKr.u.1275-1290-benKasztíliábanírta.A
+szerzőnekmárnemvoltpontosismereteatalmudi
+hagyományról,ésPalesztinátiscsakazirodalombólismerte.
+
+
+
+3.MiutánKr.u.1492-benazsidókatkiűzték
+Spanyolországból,aKabbalahnépmozgalommávált.Moses
+CordoveroösszegyűjtötteésmagyaráztaaKabbalahanyagát.
+KésőbbIsaacLuriaéstanítványaihatásáraIzraelföldi
+számkivetésétúgyfogtákföl,mintazistenség
+kisugárzásánakföldiképét.EszámkivetésnekcsakIzrael
+megigazulása(messiásiküldetése)vethetvéget.Ebbenaz
+összefüggésbentanítottákalélekvándorlást.Aluriani
+KabbalahbólmerítettSzabbataiZviésJakobFrank
+messianistaeretneksége,valamintahasszidizmus."
+(MagyarKatolikusLexikon)
+El Cid (Kr. u. 1041-1099) szobra
+(Burgos, Spanyolország)
+Érdekes, hogy a muszlim vallás eleve a szabeusok (sábai
+mágusok) és a zoroasztriánus mágusok ellen jött létre. A
+muszlim mondákban a különféle mágusok a negatív
+karakterek, akik demonizálva vannak. Viszont a muszlim
+kalifák és szultánok mindenkor tartottak csillagjósokat,
+varázslókat és alkimistákat, illetve számos iratunk van arról,
+hogy a Közel-Keleten is létezett egyfajta gnosztikus-muszlim
+szinkretizmus, illetve több muszlim okkultista működött
+legálisan. Ugyanígy Hispániában és Észak-Afrikában, ahol
+számtalan muszlim csillagász és csillagjós működött. Vagyis
+bizonyos értelemben a muszlimok a Tóra parancsait nem
+
+
+
+tartják fontosnak, ha azoknak megszegésével az iszlámot
+szolgálják. Ugyanilyen logika alapján árultak mindenkoron a
+muszlimok alkoholt és kábítószereket a gyauroknak, hisz a
+muszlimoknak Allah tiltja a kábítószerek fogyasztását, de azt
+nem tiltja, hogy gyauroknak azt eladják. Így a csatákat
+megelőző napon a csillagjósok tanácsot adtak a hadvezérnek,
+vagy a szultánnak, hiszen a muszlimok pontosan tudták, hogy
+a zoroasztriánusok és a keresztények ugyanezt teszik.
+Valójában a különböző jóslásokkal kapcsolatos Tóra-béli
+tiltásokat csak a köznéppel tartatták be, ám az uralkodók, a
+nemesség és a papság mindenkoron gyakorolta ezeket.
+Továbbá a zsidók, a Tóra tiltásai ellenére, megírták a Kabbalát,
+ami talmudizmusra és más népek mágusaitól eltanult
+mágikus tudásra alapszik. Így a muszlim vezetők (papi és
+világi), a kabbalista zsidók példája alapján maguk is különféle
+okkult praktikákat kezdtek alkalmazni.
+,,A3lovagrendésazújabbkereszteshadakáltalerősbült
+keresztyénállamokhatalmamindnagyobbveszéllyel
+fenyegetteaspanyolmohamedánvilágot,melynek
+megmentéséresietettAfrikábólazalmohadokfelekezete.
+EzeksegítségévelamóroknaksikerültisKr.u.1195-ben
+győzelmetaratniakeresztyénekfölött,deezsemmentette
+megamohamedánuralmat.MárKr.u.1212-ben,újabb
+kereszteshadaktólsegítve,akeresztyének
+győzedelmeskednekTolosánál,Kr.u.1248-banpedigCordova
+ésSevillaismeghódolsígycsakGranadamaradtazarabok
+kezében,deeziselvesztettefüggetlenségét,mertCastilíával
+szembenmagátéviadófizetésérekötelezte...Afrikábóla
+harcziasmerinitáktörzseátkelésadélirészenerősállást
+foglal...Magaakirálypedigamerinitákharcziastörzséthívta
+segítségül.Ígytehátmagokakeresztényekműködnekközre
+abban,hogyamárhanyatlásnakindultmohamedánhatalom
+újerőreemelkedjék...AmialattXI.Alfonzmegéria
+nagykorúságot(Kr.u.1324)sátvesziakormányt...Erőteljes
+uralkodóváfejlődöttakirály,akihasznárafordítvánamórok
+körébenkitörtbelviszályt,ezektőlnemakadályozva,erőtvetta
+
+
+
+nemeseklázongásánésakirályihatalmatishelyreállította.
+Biztosítvánuralmátazországban,békétkötAragóniávalés
+Portugáliávalis.Éppenjókor,mertekkormegAbulHassan
+vezérletealattegyhatalmasarabseregjelentmega
+félszigeten,hogyazelvesztettrészeketvisszahódítsa.A
+közösveszedelemPortugáliaszövetségétszerzimega
+királynak,akivégreaSaladofolyammellettvívottdicső
+győzelembenteljesenmegtöriazarabokhatalmáts
+elfoglalvánAlgezirast,Spanyolországkulcsát,ezzela
+Maroccóbóljövőmozgalmaknakmindörökrevégetvet...Kr.u.
+1481-benAndalusiahatáránfekvőZaharáttámadtákmega
+mórok,őrségétfölkonczolták,lakosságátpedig,férfiakat,nő
+ket,gyermekeket,mintrabszolgákatGranadábahurczolták.
+Erreanemzetiharagegészviharatörtkiakettőskirályságban
+ésezzelmegindultaküzdelem,melycsakisakkorértvéget,
+mikorGranadaakeresztényekkezébekerült,Boabdil(Abu
+AbdallahMohammed)azutolsómórkirálypedigelmenekült
+...Rendeletetbocsátottaktehátki,hogyakiktovábbraisott
+akarnakmaradni,azokvegyékfölakeresztyénvallást.A
+vallásukhozragaszkodókerreodahagytákazországot,velök
+együttazsidókis,kiketugyanazasorsért,mások,színleg,
+elfogadtákakeresztyénvallást."(NagyKépesVilágtörténet
+1899)
+,,Lényegébenazsidóktúlnyomótöbbségemagátólelhagyta
+Spanyolországot,felismerve,hogynemélhetitovábbaddigi
+életét...Amórokazonbannemtávoztakönként
+Spanyolországból,snemtudtak,illetvenemakartak
+asszimilálódni...Spanyolországegészenmáskéntviszonyult
+amórokhoz,mintazsidókhoz.AzutóbbiakSpanyolországból
+valókiűzésemáraKr.u.15.századelejétől,sőt,mégrégebb
+ótanapirendenvolt,deakirályiudvar,szemelőtttartvasaját
+gazdaságiérdekeit,egészenKr.u.1492-igellenálltafanatikus
+papokáltalfeltüzelttömegeknyomásának.Amórokat
+valójábannemakartáktömegesenelkergetni,csak
+megtéríteniésasszimilálni...Amegkereszteltmórokfiaiés
+unokáititokbanmecsetekettartottakfenn,arabulimádkoztak,
+
+
+
+önkéntesmollahokathallgattak.Mindezerősen
+nyugtalanítottaalegkeresztényibbkirályokatésazegyházat,
+ezértahatóságokvégülKr.u.1616-bansortkerítetteka
+moriszkókAfrikábavalódeportálására...Folyamatosan
+lázadoztakamórok,ugyanakkorÉszak-Afrikábantovább
+folytakaharcok...Azibériaikalifátusokésemírségek
+mindvégigszorosdinasztikuskapcsolatottartottakfenna
+maiMarokkóterületéturalócsaládokkal(aMerínidaésa
+Szaaditadinasztiákkal),saSpanyolországbólelmenekült
+muzulmánelőkelőségeknagybefolyásratettekszert.Amai
+Marokkóterületénvalóságosiszlámébredészajlottleaz
+állandókonfrontációhatására,amelyetmarabutikus
+mozgalomnakneveznekazarabtörténészek,tekintettelarra,
+hogyanagybefolyásúcsoportokélénmarabukálltak.A
+formálisszerveződéskeletieredetű,ősrégrőlismert:a
+tanítványokegycsoportjaegymesterkörülcsoportosul,s
+elindítegybeavatásifolyamatot,amelyévekigiseltarthat,
+ameddigtöbbtanítványtalkalmasnaktartanakarra,hogy
+továbbadjákatanítást,amelybenrészesültek,sezekegy
+másikbeavatásiközpontotalapítanak.Azirányzatígya
+vallásitanításdecentralizálásánakirányábatolódik,amit
+hűségesküvelellensúlyoznak.Ezkötiamestereketa
+tanítványokhoz,szavatoljaazegységetésafolyamatosságot.
+EzaszervezetiformadöntőfontosságúvoltaMagreb
+bizonyostérségeiben,egészena20.századelejéig.Többcélt
+szolgált:vallásit,társadalmit,politikaitéskatonait.Amikoraz
+ibériaiveszélykörvonalazódott,abeavatásiközpontoka
+védelmiháborúközpontjailettek.Innenszármazika
+marabutikusmozgalomneve,amelyazállamikeretekenkívüli
+népimozgósítástszolgálta.Azészak-afrikaimuzulmánok
+vallásikötelességüknekéreztékazIbériai-félszigetenkezdett
+szentháború,aDzsihádfolytatását,mindenformában,akár
+kalózokkéntis.Akeresztényspanyolokésportugálok
+tudatábanvoltakafenyegetőveszélynek,smeglehetősen
+sietvefoglaltakelazészak-afrikaipartvidékennéhány
+megerősítetttámaszpontot...abbólacélból,hogy
+ellenőrizzékapartmentihajózást.AKr.u.16.századbana
+
+
+
+spanyolokugyaneztataktikátkövettékamaiAlgéria
+partvidékén...Akeresztényekelőrenyomulásával
+szembesülveatengerpartiAlgírarablakóiazisztambuli
+FényesPortáhozfordultak,amelyegyArudzsnevűtörök
+kalóztküldöttasegítségükre.Arudzsarrólvolthíres,hogyKr.
+u.1510-bentengeriútonnyújtottsegítségetazinkvizícióáltal
+sanyargatottandalúziaimuzulmánoknak,azazfegyvert
+szállítottazellenállóspanyolországimóroknak.AzOszmán
+Birodalomnakérdekébenállt,hogykiterjesszeuralmáta
+Földközi-tengernyugatimedencéjére.EkkorkezdődöttAlgír,a
+kalózvárosfigyelemreméltókarrierje,ugyanisArudzshalála
+utánfivére,anagytengerihadvezéréskalóz,Haireddin
+BarbarossamegszerezteahatalmatamaiAlgériafontos
+szárazfölditerületeifelettis.Kr.u.1519-benelismerteI.
+Szelimtörökszultánfennhatóságát,akibeglerbéggénevezte
+ki,skatonaisegítségüljanicsárokatküldöttneki.Algírekkor
+kerülttörökuralomalá,sbárformailagaszultán
+fennhatóságaalátartozott,ténylegesenmáraKr.u.17.
+századelejétőlegyfajtafüggetlenkalózállamvolt."(Pelle
+János-Dzsihádatengeren-2006)
+,,Azsidókésamaranusokközöttiösszefüggéssokkal
+szorosabbvolt...Benső,testvériesviszonyfűzteőket
+egymáshoz.Azsidókmélyrészvétetéreztekszerencsétlen
+testvéreikiránt,akikkényszerűségbőlakereszténység
+álarcábaburkolóztak,ésigyekeztekőketzsidóérzésükben
+megerősíteni.Kioktattákakereszténységbennevelkedett
+maranusokatazsidóságrítusaira,titkosvallási
+összejövetelekettartottakvelük.Zsidóiratokatszereztek
+nekik,értesítettékazünnepekésböjtnapokbeköszöntéséről
+ésmódotnyújtottaknekikazokmegtartására.Sevillábanés
+egyáltalábanAndalusiában,aholFernandoMartinez
+támadásaiésaKr.u.1412-1414közötttöbbszörmegismételt
+kegyetlenüldözésekkövetkeztébennagyonsokzsidótérta
+keresztényvallásra,deazzalazeltökéltszándékkal,hogy
+amintalkalomkínálkozik,visszatérnekőseikhitére...A
+legbuzgóbbvoltebbenJudaIbnVergaSevillából,aki
+
+
+
+Kabalávalésasztronómiávalfoglalkozottésazandalusiai
+helytartónálnagytiszteletbenállott...Torquemada
+főinquisitor.Arabbinusokatésahitközségeketarraakarta
+kényszeríteni,hogyáruljákelazokatamaranusokat,akik
+továbbisazsidórítusokszerintélnek...Aselyembenés
+ékszerekkelkevélykedőzsidókakeresztényektőlszerezték
+vagyonukat...IV.Sixtuspápakeservesenpanaszkodott(Kr.u.
+1484.május31.),hogyaspanyolzsidóknakkülönösen
+Andalusiábantúlságosansokszabadságotengednek,nem
+kényszerítikaszégyenfoltviselésére,kereszténycselédeket
+tartanak,zsidóorvosokkezelnekkereszténybetegeket,
+kezükrebízzákazállami,sőtegyháziadókbehajtásátés
+általábanérintkezéstfolytatnakegymásközöttzsidókés
+keresztények,amiakatholikusvallásnaknagyszégyenére
+válik.Ésapápasürgetteakánonikorlátozásokszigorú
+végrehajtásátésazsidókmegalázását...Azinquisitio
+áldozatainakérdekébentettlépések,úgylátszik,eredményhez
+vezettek,mertadominikánusokennekellensúlyozására:A
+talmudcáfolataéscensurája-címűiratotbocsátottakki,
+amelybenTorquemadaeljárásátigazolták."(KohnSámuel-A
+zsidókegyetemestörténete5.-1908)
+Vagyis, első sorban fontos megemlíteni, hogy a zsidók
+bevallják azt, hogy a mindenkori kikeresztelkedésüket ők nem
+gondolták komolyan, valójában megtévesztették a gójokat.
+Majd pedig, mikor a pápa ellenük inkvizíciós eljárásokat indít a
+Talmud miatt, ők kartellekbe tömörülve a bűnösöket védik.
+Erre a keresztény papok az elkobzott Talmud-példányokat
+lefordíttatják zsidókkal, majd ezek alapján fogalmazzák meg a
+zsidók elleni vádakat. Ez jól példázza azt, hogy mikor Luther
+Márton Kr. u. 1543-ban megírja a Zsidókról és hazugságaikról
+című könyvét, akkor annak komoly előzménye volt. Többek
+között a Torquemada-féle Talmud-botrány volt ennek
+előfutára, de nincs kizárva, hogy már a korábbi
+évszázadokban is koboztak el zsidó irományokat.
+
+
+
+A zsidók megkínozzák, megcsonkítják és megölik a La Guardiai Szent
+Gyermeket
+(Kr. u. 1491 - Nagypéntek)
+,,HogyalakosságnálnagyobbarespektusaIzsákHamonnak,
+mintMohammedprófétának,arraingereltegyesfanatikus
+mohamedánokat,hogymészárláströgtönözzenekagranadai
+zsidókközt.Csakazokmenekültekmeg,akikakirályivárban
+találtakoltalmat.Agranadaizsidóorvosokelhatározták
+ezután,hogynemfognaktöbbéselyemruhátviselniésnem
+járnaktöbbélóháton,hogyneingereljékamohamedánlakók
+
+
+
+irigységét...Torquemadaéselvtársai...sürgetnikezdtéka
+zsidókkiűzését,ésadiadalittasgyőztesekmostmárinkább
+hallgattakreájuk,mintazelőtt.Ehhezhozzájárultmégaza
+körülményis,hogyaGranadaiKirályságmeghódításával
+szerzettzsákmánynélkülözhetővétetteapénztkölcsönző
+zsidókat.MégmielőttkitűztékvolnaGranadábanakeresztes
+zászlót,felmerültmárFernandobanésIsabellábanaterv,
+hogyazsidókatkikergetikazországból.Ésecélbólkövetet
+küldtekVIII.Incepápához,ésmegüzentékneki,hogy
+szeretnékkiutasítaniazsidókatazországból,devárják,hogy
+ajópéldávalelöljárjonapápa,akiJézushelytartójaésígyreá
+váraszenthivatás,hogybosszútálljongyilkosain...A
+kereszténylakosságvalósággalveszedelmesnekkezdte
+tartaniazsidókkalvalóérintkezést...Amígzsidóklaknakaz
+országban,mindigmeggyalázásnakvannakkitévea
+kereszténységszentségei...Azinquisitorokelfogtak6
+ujkereszténytés3zsidót,akiketazzalvádoltak,hogy
+zsidózásra,Krisztusgyalázására,aSzentSzűzésa
+keresztényszentekszidalmazásáracsábítottákaz
+újkeresztényeketéshogyegy3éveskereszténygyermeket
+ugyanolyanmódonkínoztakmeg,mintegykorKrisztust,mire
+megölték,kivágtákaszívét,feldarabolták,szereztekhozzá
+felszenteltostyátésaszívésazostyakeverékévelvarázslatot
+csináltakazinquisitioésazösszeskeresztényekkiirtására.
+MindezekavádakszoroskapcsolatbanvoltakaLaGuardiai
+SzentGyermekhírhedtpőrével...Néhányzsidó,közöttükegy
+egészfiatalcipészés80évesatyja,vallásukelhagyására
+csábítottaakeresztényeket,éshogyJézuskigúnyolására
+megkínoztakegykereszténygyermeketésmeggyaláztakegy
+szenteltostyát.Avádlottakatmindhalálraítélték.Azsidókat
+elevenendobtákamáglyatüzébe,akeresztényeketelőbb
+megfojtották...Értesítéseketküldtekszétahatóságokhozés
+apapokhozavádlottakvallomásairóléskivégeztetésükről.És
+felszólítottákazegyházszolgáit,hogyolvassákfelezeketa
+vádakatésvallomásokatatemplomokban...Alig5hónappal
+avádlottakelítéltetéseutánavégzetesrendeletmegjelent.Az
+Alhambravarázspalotájábólbocsátottákkiakatholikus
+
+
+
+királyokaparancsot,hogy4hónaponbelülSpanyolország
+összeszsidóihagyjákelCastilia,Arragonia,SiciliaésSardinia
+határait.Zsidó,akitezentúlazországbantalálnak,halállal
+lakol.Vagyonukatmagukkalvihetik,desemarany,semezüst
+pénzeket,semegyéb,kiviteltőleltiltottcikkeket,hanem
+csupáncsakolyanholmit,amelynekkivitelemegvoltengedve
+...Felkelloszlatnimindentestületet,amelynekegyestagjai
+súlyosbűnöketkövettekelésszáműznikellamarossz
+lakókat,akikmegzavarjákatöbbilakósoknyugalmát.Annál
+szükségesebbazsidókkiűzése,kikannyiveszedelmesbűnt
+követnekelakatholikushitellen.Azértelhatároztaakirályi
+pár,egyházfejedelmek,grandokéstudósoktanácsára,hogy
+kiutasítjaazsidókatazállamösszestartományaiból.Ésa
+keresztényeknek,vagyonukelkobzásánakterhealatt,
+megtiltják,hogysenkisemerjenaterminusleteltével
+zsidóknakoltalmatnyújtani...Fernando,akitöbbettörődötta
+vagyonával,mintakatholikusegyházdicsőségével,
+hajlandónakismutatkozottazediktummegsemmisítésére.
+Ekkorelőlépettafanatikusdühűfőinquisitor:Torquemadaés
+tiltakozottakirályingatageljárásaellen.Odatartottaa
+feszületetakirályipáreléésakövetkezőszavakbanfakadtki:
+JudásIskariot30ezüstértárultaelKrisztust,tipedigel
+akarjátokárulni300.000aranyért,ittvan,adjátokel!-Ezután
+elhagytaatermet.Szavaiésmáspapokbefolyásanagy
+hatástgyakoroltakIsabellára,akiáltalábanmerészebbés
+állhatatosabbvolt,mintakirályésígyarendeletérvényben
+maradt."(KohnSámuel-Azsidókegyetemestörténete5.
+1908)
+Ha az általunk ismert történelmet megfigyeljük, akkor számos
+olyan leigázott, vagy üldözött népet látunk, akik elvonultak egy
+csendes, lakatlan vidékre, majd ott új életet kezdtek. Ezen
+népek a mai napig nem bántanak senkit, hanem nyugalomban
+élnek. Így az írek, akik Észak-Amerika különböző lakatlan
+vidékeit benépesítették, vagy a dánok és a norvégok, akik
+bizonyos szigeteket és Gröndland déli partvidékét belakták.
+De ott vannak például az örmények és a tibetiek, akik a
+
+
+
+magyarokhoz hasonlóan senkit sem bántottak, mégis a zsidók
+hazugságai által felhergelt és általuk lefizetett sábesz-gójok
+minket támadnak. Így az örmények, tibetiek és magyarok a
+legüldözöttebb népfajok közé tartoznak, akiket a zsidó
+szabadkőművesek igyekeznek kiirtani a japánokkal,
+chileiekkel, argentinokkal, németekkel, flamandokkal és a
+burmaiakkal együtt.
+Loyolai Szent Ignác
+(Kr. u. 1491-1556)
+Míg a különböző természeti népek sámánjai különböző
+halucinogén vegyületet tartalmazó gombák és növények
+elfogyasztása által révültek, addig a muszlimok ezen
+növényeket nem használták. Legalábbis a fanatikusok, amúgy
+a Közel-Keleten a nemes kenderből kipréselt olajos gyanta,
+vagyis a hasis, továbbá a khat nevű növény rágása voltak azok
+
+
+
+a drogok, amelyeket az átlag lakosság napi szinten
+fogyasztott. A zsidók pedig alkoholt is fogyasztottak. Vagyis a
+középkori zsidóknak se a mágia, se a drogok, nem
+számítottak tiltott dolgoknak. Ezen kívül a zsidó a vérvonalak
+fenntartása érdekében nagyon sokszor házasodtak családon
+belül, rokonokkal, amely által vérfertőző kapcsolatok jöttek
+létre és ezekből olyan gyermekek jöttek létre, amelyek sokkal
+fogékonyabbak voltak a kegyetlen és bestiális cselekedetekre.
+Lelketlenek lesznek.
+,,AKabala(hagyomány),vagytitkostan(chachemanisztara)
+ezeknekaharcoknakidejébenjöttfelszínre.Harcvolta
+szülőanyjaésaholjelentkezett,harcésviszálytámadta
+nyomában.AKabalaelsőrendszeresfellépésenemnyúl
+visszatovábbaKr.u.13.századkezdeténél.Őmagasem
+hivatkozhatottennélnagyobbkorra.Hakérdeztéktitkos
+művelőitől:kihagytareátoklegelőször?Aztfelelték:VakR.
+Izsák,vagyannakatyja,aPosquieresiÁbrahámbenDávid,
+Maimunitámadója.Bevallottáknyíltan,hogyakabalisztikus
+tanbólnincsensemmisem,semaPentateuchusban,sema
+prófétákban,semahagiografiákban,semaTalmudban,csak
+aligészrevehetőhomályoscélzásokutalnakreá.VakR.
+Izsáknak(működöttKr.u.1190-1210között)kabalisztikus
+nyilatkozataibólcsakaprótöredékekmaradtakránk,
+amelyekbőlaligvehetünkkivalamit.Csakannyibizonyos,
+hogysokatfoglalkozottamisztikusTeremtésKönyvével
+(SzeferJecira)ésmagyarázatokatfűzöttahomályos
+szöveghez.Amitvakszememegtagadotttőle,azt,hívei
+szerint,sokszorosanpótoltabelsőérzéke.Azsidó
+gondolkodóktólannyirakigúnyoltéskárhoztatott
+lélekvándorlásthittételnekfogadtael.Tanítványaiazt
+beszéltékróla,hogymegtudjakülömböztetniazegyes
+embereknél,vajjonegyenesenazégiszellemvilágból
+származóúj,frissléleklakozik-ebennük,vagyolyan,melymár
+vándorútjántestből-testbeszállottésmégmindigtisztulásért
+küzd.ÖsszefüggőrendszerbeVakR.Izsák2tanítványa
+foglaltaaKabalát.AgeronaiszármazásúAzriélésEzra,kik
+
+
+
+annyiraegyetértettek,hogygyakranösszetévesztették
+egymássalésegyesiratokatéstételeketmajdazegyiknek,
+majdamásiknaktulajdonították.Ezazikerpár-talán
+csakugyantestvérekvoltak-mintegyetlenszemélyszerepela
+Kabalatörténetében.Kölcsönösenmintegykiegészítik
+egymást.AkabalistaJehudabenJakar,Nachmanimestere,
+valószínűlegszinténehhezaziskoláhoztartozott.
+Spanyolországban(Sevilla)azonbanafilozófiai
+képzettségűekkinevették,mertezekcsakazttartják
+igazságosnak,amitaszigorúlogikaibizonyítás
+megdönthetetlennekállít,ahagyományosKabalátellenben,
+minthogygondolataiújszerűekneklátszanak,mellőzikés
+megvetik.Azelsőmisztikusokegyikebevallottatehát,hogya
+Kabalaelsőfellépésekornagyellentállásrataláltéshogytanai
+tartalmátréginekelismerninemakarták.AzrieltésEzrát
+azonbannemzavartaezazellentállás,hanemigyekeztek
+tanaikattovábbfejleszteniésterjeszteni...Alegrégibb
+misztikusirat,azangyalláváltHenoch-Metatron
+kinyilatkoztatásai,amelyekazelőttcsakegyeseknekvoltak
+hozzáférhetőkésamelyekkelebbenazidőbennagyolvasókör
+foglalkozott.NemcsakaTeremtésKönyve,hanemaza
+torzmunkais,amelyIzraelistenétóriásiméretűemberi
+testtagokkalábrázolta(Siurkoma),mintszentírásszerepelt
+ebbenakörben.Maimuniazőtisztultvallásosságában,
+megbotránkozássalutasítottavisszaeztazálirodalmatés
+reámutatottarra,hogyaznemegyéb,mintvallásitudatlanság
+éspogányvilágfelfogáskeverékébőleredtfattyúhajtás,
+amelyetkiirtanikötelesség.DeeznemrettentettevisszaVak
+Izsákiskolájátattól,hogytovábbisnefoglalkozzékIsten
+óriásiszerveinekleírásával.HiszenaforrásR.Ismaelnevét
+viseliésazünnepeltR.Akibaisjótállottvalódiságáért-így
+mondjaeleredetétaműmaga."(KohnSámuel-Azsidók
+egyetemestörténete5.-1908)
+A Kabbala bekerült a reinkarnáció tana, amely távol-keleti,
+egyiptomi és ezáltal gnosztikus vallási elem, továbbá a
+dualizmus, amely a zoroasztrianizmusnak a szellemi alapja:
+
+
+
+,,Újplatonizmus(neoplatonizmus)-ahellénizmusetikaiés
+vallásbölcseletirendszereKr.e.300-tólKr.u.500-ig.A
+Krisztusutániszázadokuralkodófilozófiaiiránya,melya
+tanainakbölcseletikifejezéséretörekvőkereszténységreis
+hatott...Akoregyébbölcseletiirányzataihozhasonlóanaz
+újplatonizmustisavallásosszükséglethoztalétre,aza
+törekvés,melyelegetakarttenniazAbszolútummalegyesülni
+vágyólélekigényeinek,anélkülazonban,hogyavilágértelmes
+magyarázatáróllemondottvolna.Mertbármelyvonzóerővel
+hatottisazalexandriaigöröglélekrekeletvallásosmisztikája,
+azújplatonizmusagörögfilozófiafényesmúltjátnem
+feledhetteel.Misztikusvágyainakfilozófiaiigazolásátfőképp
+Platónbölcseletébenkereste,dea→platonizmus
+elfogadásávaladualizmuselkerülhetetlennélett,hanemis
+válteléggétudatossá.Azideákvilágánaktranszcendenciáját
+fennkelletttartani,viszontalélekútjátisszabaddákellett
+tenniazabszolútumhoz.Ezalelkiigényhoztalétreaz
+újplatonizmussajátságosvilágszemléletét:azAbszolútum
+transzcendeciájafeltétlen,avilággalnemérintkezhet,dea
+világmégisösszefüggő,nagyegység,mertmintaz
+Abszolútumszükségképpenikiáradása(emanáció)
+egymásbólkeletkezőőslétformák,hüposztázisok
+aláereszkedősoránátalakulki.Ígyalét,bárforrásátólvaló
+távolodásaarányábandifferenciálódvaegyreváltozatosabbá
+leszsezzelegyüttértékébőlisfokozatosanveszít,deazért
+legparányibbrészeisazideákvilágánakszépségéttükrözi
+vissza."(MagyarKatolikusLexikon)
+Majd az újplatonista tanok között felfedezhetjük a gnosztikus
+keresztény teremtéstant, vagy kozmológiát:
+,,Avégsőelvtúlvanmindaszellemi,mindazérzékiléten,
+fölöttevan.Teljesenegyszerű,bennesemmiféle
+megosztottságnemlehetséges.Öntudatlan,mindenlétés
+gondolkodásikategóriánfelüláll.Nemgondolkodik,mertez
+márazalanyésatárgykettősségéttételeznéfel.Nem
+tevékeny,mertezegytőlekülönbözővalóságlététállítaná,s
+
+
+
+különbenisönmagánakteljesenelég,semmiszükséglete
+nincs.PozitívhatározmányokközülcsakazEgyvagyaJó
+állíthatóróla,deezeksemfejezikkilényegét,hanemcsaka
+világhozvalóviszonyátállapítjákmeg.AzEgyképességileg
+minden,deavalóságbanegyikdologsem.AzEgyabszolut
+transzcendenciájakizármindenszubsztanciálisváltozást.
+Anélkül,hogyönmagamegváltozna,túláradóbőségéből
+tudattalanulésszükségszerűencsordulkialét,aminta
+túláradóforrásvizekicsordul,vagyamintafényforrásfénye
+szétsugárzik."(MagyarKatolikusLexikon)
+János Apokrifonjában a Monádról (Szentlélek / Ős-Isten)
+szinte szóról szóra ugyanezt olvashatjuk. Az apokrifon szerint
+ezt Krisztus jelenti ki Szent János apostolnak. Majd folytatja
+azzal, hogy a Monádból úgy lett élet, hogy létrejött Barbelo,
+majd a ketten egymásra nézve, egymás visszatükröződéséből
+jött létre Krisztus. Majd ők hoznak létre további lényeket,
+szférákat, majd a lények közül egy pedig az anyagi világot.
+Hasonlót olvashatunk az újplatonizmus tanai között is:
+,,AzEgyelőszöraNúsztbocsátjakimagából.ANúszazEgy
+hasonmása(eikón).Ezahasonmáseredetimintájafeléfordul
+sazEgyfeléfordulásáltalÉrtelemméválik,önmagát
+megismeri.ANúszimmanenstartalmaiazideák,merthatőle
+különbözőkvolnának,aNúsznemlenneazigazság
+birtokában,hanemcsakatévedéslehetőségétmegengedő
+képzetekkel(eidóla)lennekénytelenmegelégedni.ANúszaz
+ideákateredetiszépségükbentartalmazza,sminthogy
+mindenegyesdolognakmegvanazideája,aNúszazérzéki
+világősmintája(exemplarizmus).Azideákaktív,cselekvő
+szellemierők,melyekavilágrendjétszabályozzák.ANúszaz
+Egynekszétszóródófénye,azEgykisugárzása.Érthető,hogy
+mindenlélekösztönszerűentörekedikutána...ANúszbólárad
+kiaViláglélek,melybőlazegyedilelkekjönneklétreanélkül,
+hogyaViláglélekrészeilennének.Alelkekegymássalsa
+Világlélekkelegynagyegységetképeznek.AlélekaNúsz
+mása,sminthasonmás,azeredetinélugyantökéletlenebb,de
+
+
+
+mégmindigaszellemivilágtagja,szellemitökéletességek
+hordozója.Nemesebb(szellemi)részelétforrása,aNúszfelé
+fordul,másikrészepedigvonallákifejlődőpontmódjára
+leereszkedikazanyagivilágba.Azembertehátszellemből
+(núsz),atesttelegyesültlélekből(pszükhé)éstestből
+(szóma)áll...Alélektestbeszállásatermészeti
+szükségszerűség,deegyszersmindbüntetésis."(Magyar
+KatolikusLexikon)
+Ez részben arra is hasonlít, mikor Jaldabaoth
+(Demiurgos/Jahve) arkónjai (démonok) feltekintenek Istenre,
+akit nem látnak teljesen, majd megpróbálják az alakját
+leutánozni, ezáltal létrehozva Ádámot. Míg a zsidó Tórában
+Elohim a saját képére teremti az első emberpárt (Lilith és
+Ádám), addig János Apokrifonja szerint az arkónok hozzák
+létre Ádám testét. Az apokrifon többször idézi a zsidó Tóra
+szövegét, amelynek értelmezésén pontosít. Krisztus azt állítja
+a szövegben, hogy Mózes rosszul tudott számos dolgot,
+ezáltal azokat rosszul és hiányosan írta le. Majd ezen hibás
+írást értelmezték később félre. Az apokrifon viszont a teljes
+igazság. Az pedig, hogy az inkarnáció (manifesztáció)
+büntetés, tükröződik a manicheizmus tanaiban. Mivel az
+újplatonizmus a Pártus Birodalom kezdetétől, annak végéig
+uralkodó irányzat volt, ezért nem csodálkozhatunk azon, hogy
+a királyi pártus származású Mani erre építette tanrendszerét.
+De mestere, Terebinthus Palesztina felől érkezett, annak
+mestere, Scythianus pedig Egyiptomból. Ezáltal vagy
+Thébából, vagy Alexandriából. Utóbbi az újplatonizmus
+bölcsője volt.
+Ebben a közegben alakul ki a gnoszticizmus, amelyből egyes
+talmudista zsidók kialakítják a kabbalizmust. De ez nem
+jelenti azt, hogy a Kabbalah bizonyos tanai ne léteztek volna
+korábban is. A kabbalisták a reinkarnáció-tant Gilgul
+Neshamotnak nevezik:
+
+
+
+,,Azemberekbűnei,amelyekújmegújvándorlásokra
+kényszerítikalelket,megakadályozzákavilágmegváltását.
+Mertazújlelkeknemindulhatnakpályájukra,minthogyavilág
+televanrégilelkekkel,anagykegyelemideje,avilágszellemi
+tökéletesülésepedigcsakekkorérkezikel,haazösszes
+lelkekmegtettékföldiútjukat.Amessiáslelkeisottvárakozik
+aszefirákszellemivilágábanésnemjelenhetmegaddig,míg
+azösszeslelkekmegnemtettékföldiútjokat.Azőlelkelesz
+azutolsólélek.Amessiástehátcsakazidőkvégénfog
+megjelenni.AkkorpedigbekövetkezikaNagyJubileum
+(Jóbél-Hagadól),midőnazösszeslelkekmegtisztultantérnek
+visszaazégbe...Akabalistákilyentanokmellettazzal
+dicsekedhettek,hogyaTanTitkaiba(SzódHa-Tóra)sokkal
+mélyebbrehatoltak,mintafilozófiaésamaimunistákéshogy
+összefüggésétamagasabbvilággalésajövőalakulásával
+alaposabbanmutattákki,mintamazok...ASzentírás
+szövegénekfélremagyarázásábanfelülismúltákakabalisták
+azelőttükföllépettösszesmagyarázókat.Túltettekaz
+alexandriaiallegoristákon,azagadistákon,azegyházatyákon
+ésmindazsidóéskeresztényvallásfilozófusokon...Gerona
+zsidóközségeEzrának,Azrielnek,JákobbenSésetnek,
+NachmaninakéstalánmégJehudabenJakarnakisszületési
+helyevolt,tehátakabalaelsőfészke,mielőttazkibontotta
+volnaszárnyait.Ezabüszkénfellépőtitkostanámításon,
+vagyalegjobbesetbenönámitásonalapult.Teóriájanemrégi,
+mintönmagaelhitetniakarja,hanemujésamirégibenne,
+nemzsidóeredetű,hanemagörögfilo-zofiaalkonyának
+idejébőlszármazik...Mindazalexandriaiújplatonikusvilág
+felfogásbólvaló.Demilyenmódonjutottakazelsőkabalisták,
+akárVakIzsák,akárAzrieléstársaiazújplatonikuselemek
+ismeretéhez?Azösszeköttetésnemlehetettközvetlenés
+nemiskellettközvetlenneklennie.Franciaországbansokat
+tudtakebbenazidőbenazújplatonikuselméletből.Egy
+keresztényvallásfilozófus,DáviddeDinantoPárisban,hasonló
+teóriátállítottfel,mintaKabala.HogyIsten3különböző
+szférákbannyilatkozikmeg:aszellem,alélekésazanyag
+világában.Akeresztényfilozófus,kinekeretnekiratait
+
+
+
+máglyatűzreítélték,3principiumfelvételéttalálta
+alkalmasnak,mertezigazoltaakeresztényegyháromságot."
+(KohnSámuel-Azsidókegyetemestörténete5.-1908)
+El Cid kardja (Tizona)
+(Museo de Burgos, Burgos, Spanyolország)
+David de Dinan (Kr. u. 1160-1217) francia teológus az
+amalrikánusoktól vehetett át számos elemet, akik viszont sok
+más szervezettel együtt titokban működtek. Korábbi
+gnosztikus irányzatokból fejlődött ki ezen irányvonal, amelyet
+Benai Amalricus (Kr. u. 1140-1209) neve fémjelez. Mindez jól
+mutatja, hogy a gnosztikus-kereszténység hatása
+Hispániában és Franciaországban létezett a középkorban,
+ráadásul a júdaizmussal és az iszlámmal is keveredett, ha
+utóbbival nem is teljesen.
+,,Minthaakabalistákatbántottavolnaalelkiismeret,hogy
+tanaikatősréginekmondják,holottaTalmudmégmitsemtud
+róluk,agadikusmezbeöltöztetettiratottettekközé,amelyben
+hírestalmudszerzőknekNechunjabenHakanánakés
+másoknakkabalisztikuseszméketadnakaszájukba.Eztaz
+iratotakabalistákBáhirnak(Fénynek)vagyelsőelnevezése
+
+
+
+szerintNechunjabenHakanamidrásánaknevezték.Hogyki
+voltennekakönyvnekaszerzője,megállapítaninemlehet.
+Talánakabalisztikustestvérpár:AzrielésEzra.Olyügyesen
+burkoltákelacsempészetet,hogymégajózanrabbikis
+valódi,ősrégimunkánaktekintettékésszavainakhiteltadtak.
+Hiábaleplezteleahamisítástegyigentekintélyesférfiú:a
+narbonneiMéirbenSimon.Hiábafigyelmeztetteanagytudású
+ésigaz-vallásosságúrabbiMesullambenMózesBeziersbőla
+zsidóközségeket,hogyneámíttassákmagukata
+kabalisztikushamisítvánnyal,hanemégessékel,minthogy
+eretnekségettartalmaz:aBahirkönyvemégisterjedtés
+bizonyságulszolgáltakésőbbikabalistatanokszámára.A
+miszticizmuscsakbecsempészésseltarthattafennmagát.
+Mivelhogytanaitvilágosmegokolásokkaligazolninemtudta,
+autoritásokrakelletthivatkozniaéshanemtaláltilyeneket,
+csempészethezfordult.Apropagandát,amitAzrielésEzra
+vándorútjokonaKabalaérdekébenkifejtettek,támogattaez
+azapokryfirat,amelyakabalistákszerintPalesztinában
+keletkezettésősrégiidőbenNémetországbakerültésinnen
+vándoroltaProvenceba.Tartalmaakabalistákszerintgaonról
+gaonraszállt,mígőhozzájukjutottel.Éseztamesételhitték,
+habáragaonokésarabbinikusautoritásokközülaKr.u.13.
+századigsenkisemteszemlítéstegyilyenmisztikusirat
+létezéséről.MégNachmaniisTalmud-korabelinekmondjaa
+BahirtésennekalapjánőisbelemerültaKabalába...
+NachmanieleintehatározottellenségevoltaKabalánakés
+egyőszkabalistahiábaigyekezettőtmeggyőzni,fáradozása
+sikertelenvolt.Egyszerazonbaneztazöregkabalistát
+valamelyráfogottvagyvalóbanelkövetettbűnkövetkeztében
+halálraítélték.Kivégeztetéseelőttmagáhozhívatta
+Nachmanit,deezcsaktöbbszörisürgetésrementelhozzá.A
+kabalistaNachmanielőttaztigyekezettbizonyítani,hogy
+ártatlanéshogyerrőlmegisfogjagyőzni,decsakhalálaután.
+Nemisfogjákkivégezni.Azcsaklátszólagoslesz.Ahogya
+fejeleesikatörzséről,márottlesz,mégpedigsértetlenül
+Nachmaniházábanésveletöltiaszombatot.AKabalaeztbe
+isváltotta.Titkostudományávalúgyintézteadolgot,hogy
+
+
+
+helyetteegyszamaratvégeztekki,melyakabalistaalakját
+vetteföl,mígőNachmanihozmenekült.Ettőlapillanattól
+fogvaNachmaniaKabalahívelett."(KohnSámuel-Azsidók
+egyetemestörténete5.-1908)
+Egy ókeresztény apokrif ehhez hasonló. Eszerint Cirenei
+Simon, aki a kanonizált evangéliumok szerint kényszerítés
+hatására segít Izzásnak vinni a keresztet a Golgotára. Az
+apokrif, vagy inkább dilettáns legenda szerint Cirenei Simont
+feszítették meg Izzás helyett. Egy magyarázat szerint
+Izzásnak nem is volt fizikai teste és ezért öltek meg helyette
+mást. Másik magyarázat szerint Izzás elvarázsolta a római
+katonákat, akik nem vették észre, hogy Cirenei Simont
+átváltoztatta saját képére és ő maga pedig egy domboldalról
+nézte végig Cirenei Simon keresztre feszítését, miközben
+nevetett az eseményen. Valószínű, hogy ez utóbbi, keresztény
+gyalázó iratot ugyanolyan zsidók találták ki, mint Nachmani és
+a szamár legendáját.
+,,Másfajtájutitkostandívottanémet-zsidókörökben,
+amelynekfőképviselőjeawormsiEleázárbenJehudavolt...A
+GyakorlatiKabalát(KabalaMászijot),hogybizonyosisten
+vagyangyalnevekleírásávalcsodákatlehetmívelni,amirőla
+provencálésspanyoltitkostanmitsemtudott,szinténápolta
+awormsiEleázár.EllenbennemismerteanémetKabalaa
+szefira-rendszert,sőtazÉn-Szofkifejezésrőlnemistudott...
+Midőnezakétféletitkostan,abetűkönésszámokonalapuló
+ésaszefirákbólkiindulórendszertalálkozottésegymásba
+olvadt,mégnagyobbzűrzavarttámasztottazagyakbanés
+szintemegölésselfényegetettmegmindenjózanságot...
+Elkülönödésfejlődöttkiafilozófiaiképzettségűek,a
+talmudistákésakabalistákközött...Zsidóüldözések,melyek
+eddigcsakszórványosanfordultakelő,mostmindsűrűbben
+léptekfel,ragadósbetegségmódjárahelységrőlhelységre
+terjedtekel.Évrőlévrenagyobbméreteketöltöttekésegyre
+többvéresáldozatotköveteltek...Gyermekölésekmiattidőről
+időre,majditt,majdottvoltakizgatásokazsidókellen...
+
+
+
+LaudaésBischofsheimközött(Badenban)keresztény
+hullájárabukkantak.Kiklehettekagyilkosok?Természetesen
+azsidók."(KohnSámuel-Azsidókegyetemestörténete5.
+1908)
+Utóbbi eset Kr. u. 1235-ben történt, valószínűleg január 1-én,
+ugyanis január 2-án már zajlott a gyilkos zsidók pere. A
+németek, miután megtudták, hogy a zsidók milyen nagy bűnt
+követtek el, megrohamozták a zsidónegyedet, majd az ott lévő
+zsidókat megölték. A 8 perbefogott zsidó mindent bevallott,
+majd ezután őket kivégezték. Majd a keresztények
+visszavették azt, amit a zsidók tőlük uzsora, csalás, hamisítás
+és más bűncselekmények által vettek el. A zsidók házait
+kifosztották. Majd a zsidók cselhez folyamodtak, ugyanis
+lefizették a pápát, hogy az adjon ki olyan bullát, amely védi a
+zsidókat. Ekkoriban az Almohád Kalifátusból (Kr. u. 1121
+1269) szintén elűzték a zsidókat, akik maradtak, azokat pedig
+megölték. Így ők Szicíliába menekültek. Ugyan a zsidók azt
+mondják, hogy ők mindenkoron ártatlan, üldözött és
+nyomorgatott nép voltak, ám az, hogy sehol sem tűrték őket
+meg, jól mutatja a valódi természetüket.
+,,Kr.u.1235karácsonyánegymolnárnak5fiáttalálták
+meggyilkolvaavárosonkívül.Agyanúkétzsidóemberre
+irányult...akétzsidóagyermekekvérétlecsapoltákés
+összegyűjtöttékegyviaszkoszsákban,hogyeltegyéka
+peszachünnepre...Agyanútólösztökélve,az
+összegyülekezettkeresztesekéspolgárokmegrohantáka
+fuldaizsidóhitközséget(Kr.u.1235.december28.),megöltek
+34férfitésnőt,köztükolyanokat,kikFülöpÁgostfrancia
+királyüldözéseielőlépenFuldábamenekültek...IX.Gergely
+pápaújkeresztesháborúthirdetett,mireazAquitaniában
+összegyülekezettszentharcosokmegrohantákazAnjou,
+Poitou,Bordeaux,Angouléme,Saintsésmásvárosokbanlakó
+zsidókat,hogyakeresztségfölvételérebírjákazokat.Demert
+állhatatosanmegmaradtakhitükben,akeresztesekhallatlan
+kegyetlenséggelbántakelvelük,sokakatlovaikkalgázoltattak
+
+
+
+el...azsidókházaitkifosztották,felgyújtották.3000-nél
+többenhullottakel(Kr.u.1236nyarán),miközben500-nál
+többentértekátakereszténységre.Amégéletbenmaradt
+zsidókazelszenvedettkegyetlenségekmiattismétpanaszra
+mentekapápához...Egyetlenegyeszközükvoltazsidóknak
+azellenükfelszítottgyűlöletlecsillapítására:apénz.Ezzel
+tudtákrávenniazangolzsidókIII.Henriket,hogyheroldok
+általkihirdettette,hogysenkisemerészeljeazsidókat
+bántalmazni.Csakhogyezkétélűfegyvervolt,melygyakran
+fordultgazdájaellen.Hogyasokpénztösszehozzák,
+kénytelenekvoltakazsidókmértéktelenkamatokatszedni,
+taláncsalniis.Ezzelmegmagukravontákalakosságharagját
+ésígyújabbbántalmazásoknaktettékkimagukat.Azuzsora
+miattvalógyakoripanaszokarraindítottákIX.Lajost,hogyaz
+uzsorátmegszorítottaésgyakranfölmentetteazadósokata
+fizetésalól."(KohnSámuel-Azsidókegyetemestörténete5.
+1908)
+Vagyis a zsidók azzal magyarázzák a nép kifosztását és
+megcsalását, hogy nekik szükségük volt a pénzre, hogy azzal
+megvesztegethessék a nemeseket és az uralkodót. Miközben
+elég lett volna békében élniük, tisztességesen dolgozniuk és
+minden keresztény-ellenes szokásukat abbahagyniuk. De ők
+ezt nem akarják megtenni. Majd jött egy Nicholas Donin (Kr. u.
+13. század) nevű talmudista zsidó, aki mindent
+megváltoztatott:
+,,EgyDoninnevűvolttalmudistaLaRochellebőlkételkedni
+kezdettaTalmudnakésegyáltalábanahagyománynak
+érvényességében.Ezértafranciarabbikkiközösítettéka
+zsidóegyházból.Nemlévéntámaszasemzsidó,sem
+kereszténykörökben,rászántamagátakereszténység
+felvételére,amikoraNikolausnevetkapta.Arabbikésa
+Talmudirántvalógyűlölettőleltelve,bosszútakartállanimind
+akettőn.Valószínűlegapapokösztönzésérefelizgattaa
+tömegetazsidókésazsidóirodalomellenésakeresztesek
+segítségévelvérfürdőketrendezettAnjoubanésPoitouban.De
+
+
+
+ezmégnemelégítettekibosszúvágyát.ElmentIX.Gergely
+pápáhozésazzalaváddallépettfelaTalmudellen,hogy
+teljesenelferdítiaSzentírásszavainakértelmét,agadikus
+részleteibenméltatlanképzeletekettartalmazIstenről,és
+végül,hogyelejétőlvégigcsupakáromlásaakereszténység
+alapítójánakésanyjának.DoninMiklósbebizonyítottaa
+pápának,hogyegyedülaTalmuderősítimegazsidókata
+kereszténységtőlvalókonoktartózkodásban,enélkül
+felhagynánakhitetlenségükkel.AszenvedélyesGergelypápa
+szívesenfogadtaavádat...Azonnalpápaikéziratotintézetta
+francia,angol,castiliai,aragoniaiésportugáliai
+egyházfejedelmekhez.25pontozatbankifejtetteaDonin
+emeltevádakatésmeghagytanekik,hogyazelsőböjti
+szombatonkorareggel,mikorazsidókreggeliistentiszteletre
+gyülekeznek,kobozzanakelmindenfeltalálhatóTalmud
+példánytésszolgáltassákátaDomonkosésFerenc-rendű
+szerzeteseknek.Ugyanazonországokkirályainakisírtés
+felszólítottaőket,hogyapapságotkarhatalommal
+támogassák.Akétszerzetesrendprovinciálisait,akikaz
+inquisitiótgyakoroltákkönyvekésmeggyőződésekfölött,
+felszólítottaapápa,hogyatalmudiirodalomtartalmát
+vizsgáljákmegéshaDoninMiklósvádjaibeigazolást
+nyernének,akkorégettessékelatalmudpéldányokat
+nyilvánosan(Kr.u.1239.május-június)...Doninnakapápa
+Vilmospárisiérseknekszólókülönleveletadott,melybenez
+utóbbitarrainti,hogyFranciaországbanaTalmudtudomány
+főfészkében,atoszafistákőshazájábanerélyesenlépjenfela
+Talmudellen."(KohnSámuel-Azsidókegyetemestörténete
+5.-1908)
+A zsidók ugyan rögtön a saját védelmükre keltek, ám arra
+sosem voltak hajlandóak, hogy a Talmudnak a keresztények
+által kritizált részeit nagy nyilvánosság előtt bemutassák,
+illetve a saját változatukat előadják. Ezt a hitvitát
+természetesen egy vizsgálóbizottság előtt kellene lefolytatni,
+amelyre a zsidók a mai napig nem hajlandóak. Ehelyett azt
+hazudják, hogy a különféle, mégis egybehangzó Talmud
+
+
+
+fordítások hamisak, majd mikor lehetőségük adódik rá, akkor
+a fordítókat megölik. A példányokat elkobozzák, felvásárolják,
+vagy betiltatják. Majd pedig magukat júdaistának igyekeznek
+feltüntetni az egyszerű gójok előtt, miközben valójában
+talmudisták. Nicholas Donin legalább akkora jelentőséggel
+bírt, mint a későbbiekben Baruch Spinoza. Őt a zsidók szintén
+kitagadták az egyházukból. Vagyis a zsidóságon belül mindig
+feltűnik egy személy, akinek van lelkiismerete és alapjába
+véve lelke, majd pedig a világ leggonoszabb és legbrutálisabb
+vallása ellen fordul. Ilyen volt Donin. Továbbá ő maga
+talmudista volt, vagyis pontosan tudta, hogy mi szerepel a
+Talmudban. Tudott héberül írni és olvasni, ismerte a zsidó
+írásokat. Majd pedig kikeresztelkedett és a talmudisták ellen
+fordult. Később, Luther Márton egyik könyvében (A zsidókról
+és hazugságaikról - 1543) szintén említ hasonló esetet, illetve
+ő is azt javasolja, amit Donin, miszerint el kell égetni a
+Talmudot:
+,,Burgensis,egynagyonműveltrabbijuk,akiIstenkegyelméből
+kereszténylett,aggódikamiatt,hogyiskoláikbanhogyan
+átkoznakminketkeresztényeket...Előszörisgyújtsukföl
+iskoláikatészsinagógáikat,ássunkelmindent,aminem
+éghető,úgyhogyembersohaneláthassamegegydarabjukat
+vagyahamujukatsem.EztmegkelltenniUrunkésa
+kereszténységtiszteletére,úgy,hogyUrunklássa,hogymi
+keresztényekvagyunkésnemnézünkelvagytűrünkelilyen
+nyilvánoshazugságot,átkozódástésistenkáromlást,amellyel
+Fiátésakeresztényeketilletik."(LutherMárton-Azsidókról
+éshazugságaikról-1543)
+,,Franciaországban...IX.Lajosnakuralmaalattláttakhozzá
+komolyanaTalmudelkobzásához.EgyHenriknevűkölni
+dominikánusintézteazügyetarendjétjellemzőbuzgósággal.
+Azsidókathalálbüntetésselmegfélemlítve,kényszerítették,
+hogykiadjákaTalmud-példányokat.Azutánmegindultapera
+Talmudellen.Azecélraösszeállítotttörvényszéktagjaivoltak
+WaltherGautiersensi,Vilmospárisiérsek,Geoffroybelvelloi
+
+
+
+domonkosszerzetes,királyiudvarikáplánésmégnéhány
+világiésszerzetespap...Arabbiktagadtak,mirea
+törvényszékmáglyáraítélteaTalmudot.Dehogyazítélet
+végreishajtassék,ahhozmégsokhiányzott.Azsidók...egy
+keresztényforrásszerintmegvesztegettek-egyakirály
+személyéhezközelállópüspököt,kiazítéletetfelbontottaés
+aTalmud-példányokatvissza-szolgáltattatulajdonosaiknak...
+Apüspök,akiaTalmudotpártfogásábavette,akirály
+jelenlétébenhirtelenmeghalt...Apüspökcsakméltó
+bűnhődésétvetteelazátkoskedvezésért,melybenazsidókat
+részesítette.Henrikdomonkos-szerzetesésahitehagyott
+DoninMiklósfáradhatatlantevékenységetfejtettki,hogya
+pápaítéletemégisvégrehajtassék.Akirályekkorújabb
+bizottságotnevezettki,melybenrésztvettOdo,aPárisi
+Egyetemkancellárjais,ésújabbvitátrendezettelDonin
+Miklósés4franciarabbiközt,hogyavádpontokújra
+tárgyaltassanak."(KohnSámuel-Azsidókegyetemes
+története5.-1908)
+Vagyis a Párizsi Egyetem kancellárja, továbbá két
+szerzetesrend tartományfőnökei, 2 érsek és az udvari káplán
+gyűltek össze, egy szakavatott talmudista rabbival
+kiegészülve, hogy megvizsgálják a Talmudot. Ott voltak
+további szerzetesek és papok is. Vagyis az akkori világ
+legokosabb és legműveltebb emberei egy nagyon részletes és
+alapos tárgyalást folytattak le, amely törvényes volt. Mindezt a
+király és a pápa jóváhagyásával.
+,,Acensura-bizottságaTalmudotmáglyáraítélte.Feltűnő,
+hogyazítéletetcsaknéhányévvelkésőbbhajtottákvégre.
+HenrikbarátbuzgóösztönzéséreFranciaországminden
+részébenfelkutattákameglévőTalmud-példányokatés
+hasonlóiratokat,24szekérrevalóthordtakígyösszePárisban
+ésegynapon(Kr.u.1242.június)átadtákalángoknak...A
+franciapapságargusszemekkelőrködöttezután,hogya
+zsidóknaknelegyenekTalmud-példányaik,deazértazsidók
+módjáttudtákejteni,hogyeldugdostákelőlükakönyveketés
+
+
+
+továbbisaTalmudtanulmányozásábanmerültekel...IV.Ince
+pápánakazonbantudomásárajutottadolog,mireaFöld
+leghatalmasabburalkodójánaknemvoltsürgősebbdolga,
+mintafranciakirálytfelszólítani,hogyszigorúanjárjonelésa
+Talmud-példányokatkutassafel.Ezzelazalkalommal
+felelevenítetteaztarégizsidógyűlölőrendeletetis,hogy
+kereszténydajkáknaknemszabadzsidógyermekeket
+szoptatni...Midőnamongolokésatatárok,DzsengiszKhan
+vadharcosai,ennekunokáialattÁzsiafennsíkjairólhódító
+betöréseketintéztekEurópaellen...azzalvádoltákazsidókat,
+hogyakereszténységellenségeittitokbantámogatják...A
+zsidókazzalakifogással,hogymérgezettételeketszállítanak
+nekik,lezárthordókbanmindenfélefegyvereketjuttattaka
+mongoloknak."(KohnSámuel-Azsidókegyetemestörténete
+5.-1908)
+,,ATatárjárásszomorúidőszakautánatestilegéslelkileg
+súlyosanösszetörtmagyarságvérvesztésefolytána
+gazdaságilagismétfelhízottzsidóságanemzet
+életérdekeivelszembenolyankizsákmányolómagatartást
+kezdetttanúsítani,hogyIV.vagyKunLászlókirályidejébena
+parazitazsidófajjalszembenKr.u.1279-benszigorú
+rendszabályokatkellettéletbeléptetni.Ígytöbbekközta
+zsidóknakruhájukramesszirőlvalómegkülönböztetésvégett
+vöröskarikátkellettfelvarrniokésazilyenmegkülönböztetés
+nélküljárózsidókatmegbüntették.Enélkülajelnélkülmég
+kereskedéstsemfolytathattak.Zsigmondkirályidejébena
+zsidókvörösfoltjátasárgafoltváltottafel.NagyLajos
+királyunkbölcselőrelátásaévszázadokravetetteelőre
+árnyékátakkor,amikoruralkodásának18.esztendejébenKr.u.
+1360-banazsidóságotteljesegészében,minden
+pereputtyávalegyüttkiutasítottaazországból."(Dr.Végváry
+József-KépviselőháziNapló,22.kötet-1935)
+Dr. Végváry József az Országos Turul Szövetség vezetője,
+majd a Nemzeti Egység Pártjának országgyűlési képviselője
+volt. Később nyugatra emigrált, ahol a Bolsevistaellenes
+
+
+
+Nemzeti Erők (BENE) nevű szervezetnek dolgozott. Hibátlanul
+fogalmaz, mikor a Tatárjárás utáni időket vázolja. A zsidók
+több településen előre megegyeztek a tatárokkal, hogy ők
+sárga szalagot fognak hordani, így a tatárok majd meg tudják
+őket különböztetni a keresztény lakosságtól. A mongol
+harcosok megölték a keresztényeket, ám a zsidókkal, akik
+őket belülről segítették, közösen fosztották ki a keresztények
+házait. A zsidók gyakran gyújtották fel a magyar hadsereg
+szekérvárait, mérgezték meg a magyarok kútjait, vagy
+kémkedtek, éjszaka pedig fényjeleket küldtek a tatároknak.
+,,Vagyvanatiszteltháztagjaiközött,kineismernéazsidóság
+átkosszereplésétII.EndreésIV.Bélakirályainkalatta
+borzasztóemlékűtatárjáráskorában?Kinetudná,milyzsidó
+üzéreksanyargattákédeshazánkataMohácsiVészelőttés
+hogyatörökökdúlásaialattnagyobbellenségeinkvoltaka
+törököknél,nemegyszerhozvavésztamitsemgyanító
+helységekvagyerősségekrealjas,kémkedőszolgálataikáltal.
+Egykorszakvolthazánktörténetébenboldogkor,mikor
+kiűzettekNagyLajoskirályunkdicsőuralkodásaalattsíme,
+ezörökkéfénykorafogmaradninemzetünknek,olyfelvirágzás
+éshatalomraemelkedetthazánk.Derégletűntmárama
+szebbkorsmivisszasülyedtünkoda,hovatalánazsidóság
+vészesbefolyásanélkülnemjutottunkvolna."(RáczGéza
+KépviselőháziNapló,1.kötet-1884)
+,,Egymégzsengekorúzsidófiúátakarttérnia
+kereszténységre,szüleipedigmegakartákeztakadályozni
+(Kr.u.1241.május24.).Ennekkövetkeztébendulakodásra
+kerültasoravároszsidóéskereszténylakosaiközt,
+miközbenéletétvesztette180zsidó.Azsidókerre
+kétségbeesésükbenmagukgyújtottákfelházaikat,miáltal
+csaknemavárosfelealángokmartalékáválett.Amég
+életbenmaradtzsidókezutánállandóanhalálos
+veszedelembenforogtak,ezértegyrészükkikeresztelkedett,
+köztükállítólagegyrabbiis...Azerőszakosan
+
+
+
+megkereszteltekperszefelhasználtakmindenalkalmat,hogy
+visszatérhessenekazsidósághoz."(KohnSámuel-Azsidók
+egyetemestörténete5.-1908)
+Egy különleges zsidó taktikát fedezhetünk fel, mely a házaik
+felgyújtása. Hiszen, ha minden zsidó felgyújtja a saját házát,
+akkor a hatalmas tűz megfékezhetetlen lesz, így a gójok háza
+is leég. Ez a talmudista szellem. Továbbá az is, hogy a
+megkeresztelkedni vágyó gyermeket nem hagyják Isten
+közelségébe kerülni, hanem továbbra is lelki sötétségben
+akarják tartani, szintén talmudizmus.
+,,2évvelaFrankfurtiZsidómészárlásutánKitzingenben
+(Bajorország)előbbkínpadrafeszítettek,azutánkivégeztek
+többzsidót,köztüknőketis,teljesenismeretlenokból.
+Valószínűlegazismeretesvérvádkövetkeztében(Kr.u.1243.
+augusztus5.).Avértanukholttestei14napigmaradtak
+kerékbetörve,csakazutánvoltszabadőketWürzburgban
+eltemetni.EgyévvelkésőbbPforzheimbantöbbzsidót
+kényszerítetteköngyilkosságra(Kr.u.1244.junius28.).
+Ezeketishalálukutánkerékbetörték...Abeziersizsinatelső
+sorbaneztaszempontotvettefigyelembe,midőnazsidóknak
+megakartatiltanikereszténybetegekgyógykezelését.Eza
+zsinat,melyazalbigenseretnekekelleniskülönböző
+embertelenrendeletekethozott,anarbonneiérsekelnöklete
+alattfelújítottaazsidókellenvalamennyikorábbimegszorító
+intézkedéseket:hogyazsidóknaktilosmagaskamatotvenni,
+továbbátiloskereszténycselédeketésdajkákattartani,nem
+viselhetnekközhivatalokat,aNagyhétbennemszabadaz
+utcánmutatkozniok,ellenbentartoznakcsaládonkint6dénár
+éviadótfizetniakereszténytemplomokjavára.Köteleseka
+mellükönkerékalakúzsidófoltotviselni,hústnemszabad
+nyilvánosanárusítaniok,mindezekhezpedighozzáfűzimég
+kiközösítésterhealatt-aztakánonirendeletet,hogy
+keresztényeknekezeltessékmagukatzsidóorvosoktól...A
+Talmudtelevantévedésekkel,hitetlenséggel,
+istenkáromlássálésesztelenséggel.Odokancellárjelentést
+
+
+
+tetterrőlIncepápának,emlékeztetteaIX.Gergelyalatt
+történtekre,óvatoscélzásttettarra,hogyapápaazsidóktól
+behálóztattamagát,ésmintbíboroskövetkiadtaarendeletet,
+hogyaTalmudotsemmiképsemszabadmegtűrni,az
+elkobzottpéldányokatnemszabadkiszolgáltatni(Kr.u.1248.
+május).Kétségtelen,hogyezutánaTalmudalattismét
+felgyújtottákamáglyát."(KohnSámuel-Azsidókegyetemes
+története5.-1908)
+Vagyis a nehéz helyzetben lévő pápát a zsidó uzsorások
+szindikátusa megpróbálta megkörnyékezni, ám az
+inkvizítorok, akik a Talmudot vizsgálták, ugyanarra a
+következtetésre jutottak, mint a korábbi vizsgálat folytán. Ez
+bizonyítja azt, hogy a középkor legműveltebb és legokosabb
+emberei alaposan elemezték a Talmud minden részletét, majd
+pedig a könyveket betiltották. A zsidók szerint ez szörnyű
+csapás volt rájuk nézve, miközben pont ők azok, akik a mai
+napig világszerte tiltják a Führer, Adolf Hitler (1889-1945)
+könyvét: a Mein Kampfot (1925). Vagyis, ahogyan az ő
+talmudista tevékenységük elleni nemzeti és faji önvédelmet
+olvashatjuk a Mein Kampfban, úgy ők a mi elpusztításunkra
+való parancsokat és kidolgozott terveket olvashatnak a
+Talmudban.
+,,Azsidóknakakaratukellenottkellettmaradniok.Előkellett
+adniutolsófillérüketéstovábbkellettuzsoráskodniok,hogy
+méggyűlöltebbekkétegyékmagukat,hogyakirályés
+főurainakkasszáitújbólésújbólmegtöltsék...Angliábanis
+kezdtekvádakatemelniazsidókellenkereszténygyermekek
+...legyilkolásamiatt.Adomonkosokmérges,lázító
+beszédekbenköveteltékavádlottakmegbüntetését.Erre
+sokakatbörtönbevetettek,deaferenciekkiszabadították
+őket.Azeseményeknekegyikkortársa...PárisiMátébarát
+nemmulasztjaelmegjegyezni,hogy:Arosszvilágtudnivéli,
+hogyaminoritákjólmegfizettettékmaguknaka
+zsidóbarátságukat."(KohnSámuel-Azsidókegyetemes
+története5.-1908)
+
+
+
+Vagyis a zsidók továbbra sem akartak dolgozni, így az uzsorás
+tevékenységükre azt a magyarázatot találták ki, hogy az
+uralkodó követeli tőlük a pénzt. Az uralkodó zsarolja őket. De
+ha megkeresztelkedtek volna és tisztességesen dolgoznak,
+mint a király többi alattvalója, akkor a király őket nem zsarolta
+volna. A király csak az uzsora után beszedett pénzeket
+kobozta el. Majd pedig, miután Angliában is keresztény
+gyermekeket öltek, lefizetik a ferenceseket (minoriták), akik
+ezután kiszabadítják őket a domonkosok fogságából. Jól
+látszik, hogy a zsidók egyszer a pápát, egyszer a királyt,
+egyszer a papokat vesztegetik meg, akik ezáltal fedezik az ő
+rituális gyermekgyilkosságaikat. A zsidók sok esetben nem
+csak a keresztény gyermek vérét, hanem szívét is
+elfogyasztják. Ezért Kr. u. 1264. Nagyhetén, Londonban a
+zsidók házait felgyújtották, 1500 zsidót pedig agyonvertek.
+Kohn Salamon szerint azért nem tudtak a zsidók adót fizetni,
+mert nem vehettek hűbérbirtokot. Mármint, hogy a zsidóknak,
+akik eredetmondájuk szerint abból élnek, hogy beköltöznek
+mások földjére és ott élősködni kezdenek, nem vásárolhatják
+fel az uzsorázásból szerzett pénzen a nemesek földjeit.
+,,CastiliábanakkoribanX.Alfonzokirályuralkodott...3
+mecsetetadottátnekik,melyetőkaztánzsinagógákká
+alakítottakát.Egyjókoravárosrész,melyetatöbbi
+városrészektőlfalválasztottel,azövékvolt...Mászsidókis
+bejáratosakvoltakakirályiudvarba.Zsidóvoltakirályudvari
+orvosa,DonJudabenMózesKohén,kiegyszersmindakirály
+csillagászaéscsillagjósaisvolt.Akirályacsillagjóslásraés
+aranycsinálóművészetreigensokatadott.Zsidóudvari
+tudósaáltalarabbólcastiliainyelvrefordíttatottastronomiai
+műveket,szintúgyegymásikarabmunkát,melyakülömböző
+kövektulajdonságairólszólt.Ámbáraraboktólvoltak
+körülvéve,mégisépolykevéskereszténytudósakadt,kiaz
+arabhozisértettvolna,mintannakelőtteésígyittis,mint
+mindenütt,azsidókvittékaközvetítőszerepet.Aklerikusok
+azután,amennyibennemfelejtettékelazarabbefolyásalatt
+latintudományokat,átültettékazsidóktólszármazócastiliai
+
+
+
+fordításokatazegyháznyelvére...Akirályegycsillagászati
+kongresszusthívottegybe,melyegyfolytában5évig
+ülésezett.50-néltöbbcsillagász,keresztények,zsidókés
+mohamedánokvegyestvoltaktagjaiakongresszusnak.A
+kongresszus...alegfontosabbcsillagászatikérdéseket
+tárgyaltaésoldottameg."(KohnSámuel-Azsidókegyetemes
+története5.-1908)
+És itt már körvonalazódik a hispániai okkultisták vélt fúziója,
+amely az inkvizíció miatt nyíltan sosem létezett, viszont
+feltételezhetjük, hogy X. Alfonzo udvarában dolgozó különféle
+vallású csillagjósok és alkímisták alkották később az
+Alumbradost. Természetesen kiegészülve volt
+templomosokkal, katharokkal, albigensekkel és
+humanistákkal. A későbbiekben olyan szenteknek, mint Ávilai
+Szent Teréz (Kr. u. 1515-1582) vagy Loyolai Szent Ignác (Kr. u.
+1491-1556) szintén az inkvizíció elé kellett, hogy álljanak, mert
+megvádolták őket, hogy Alumbrados tagok. Ávilai Szent Teréz
+többször levitált, miközben látomása volt. Ráadásul mindezt a
+többi apáca szeme láttára. Így ők azt gondolták, hogy az
+ördög szállta meg, amely miatt feljelentették. Ám Borja Szent
+Ferenc, Bertran Szent Lajos, Alcantarai Szent Péter és
+Keresztes Szent János megmentették őt, majd ezután
+engedélyezték neki, hogy kolostorokat alapítson.
+
+
+
+Ávilai Szent Teréz (Kr. u. 1515-1582)
+Egy másik nő viszont valóban Alumbrados tag volt: Maria de
+Cazalla (Kr. u. 1487-1550), aki a legenda szerint
+kikeresztelkedett zsidó családból származott. Ő volt a
+spanyolországi elő-reformáció egyik fő alakja. Sok esetben a
+lutheránizmus és az erazmizmus össze lett keverve az
+Alumbrados tanaival, hiszen ezen irányzatok nagyjából
+azonos időben születtek. Egy másik nagy filozófus Oliva
+Sabuco (Kr. u. 1562-1646) volt. Pedro Ruiz de Alcaraz (Kr. u.
+1480) szintén Alumbrados tag volt, akárcsak Isabel de la Cruz,
+Gaspar de Bedoya. Pedro Ruiz szintén kikeresztelkedett zsidó
+családból származott. A protestantizmus mögött nem csak
+illuminátusok, hanem zsidók is álltak, ugyanis a zsidók
+számára kedvezően hatott a Római Katolikus Egyház
+meggyengülése. Továbbá a zsidó iratok nemzeti nyelvekre
+való fordítása, majd ebben a zsidó-keresztény szellemben
+való énekek, versek és teológiai iratok azt eredményezték,
+hogy a hithű protestánsok akarva-akaratlanul zsidó
+bérencekké lettek. Korábban, mikor az iratok csak a papok
+számára voltak elérhetőek, a közemberekben nem is
+tudatosult az, hogy a dogmatikus álláspont szerint a
+kereszténység alapja a júdaizmus, vagyis a zsidó vallás.
+Persze ez blaszfémia, de mégis, a zsidók a kezdetektől
+beépültek az őskereszténységbe, majd miután azt
+elzsidósították, az eredeti gnosztikus-keresztényeket
+szisztematikusan elpusztították. Néhány túlélő felekezet
+maradt, akik titokban működtek tovább, majd akikből a
+manicheusok és a későbbi bogumilok és katharok lettek.
+,,Alumbrados(spanyol:árnyéknélküliek)-misztikusésrajongó
+spanyolszektaaKr.u.16.században,melyazIstennelvaló
+bensőségesegyesülésbenkeresteaboldogságot,abbana
+hitben,hogyazilyenegyesüléslehetetlennétesziabűnt.Ezen
+azalaponazAlumbradoskövetőizabolátlan
+kicsapongásokbamerültek.Afelekezetetasaragossai
+
+
+
+MolinosMihályalapította,kinektételeitXI.Incepápa
+kárhoztatta,mireMolinosvisszavontatanításaitésa
+dominikánusokőrzésérebízatott.AzAlumbradosokat
+quietistáknakisnevezték,mertateljesnyugalombankeresték
+atökéletességet."(KatolikusLexikon-1931)
+Majd Spanyolországban elkezdték halállal büntetni azt, ha
+valaki áttért a zsidó vallásra. További rendeletek léptek életbe:
+,,Etörvényekértelmébennemszabadnekikújtemplomot
+építeni,semkereszténycselédettartani,mégkevésbbé
+keresztényekkelvegyülni.Azsidók,férfiakésnők,tartoznaka
+fövegükönismertetőjelgyanántzsidófoltotviselni.Akit
+enélkülrajtaérnek,azvagy10aranymaraveditfizetbírság
+fejében,vagy-haszegény-akkornyilvánosan10
+korbácsütéstkap.Zsidóknakéskeresztényekneknemszabad
+semegyüttétkezni,semegyüttfürödni.Alfonzofelvettea
+gyűjteménybenaztakorlátozórendeletetis,hogyzsidóknak
+nemszabadnagypéntekenazutcánmutatkozni...Azsidók
+mindenévbenNagypéntekenkeresztrefeszítenekegy
+kereszténygyermeketéshalálbüntetéstszabottkiarra,aki
+ilyesmitelkövet,avagyezenanaponviaszfigurákatszegez
+keresztre...RaymunddePenyafortedominikánusgenerálisa
+pápaidecretalékösszegyűjtője,kinekegészgondolkodása
+odairányult,hogyapápaságnakésacsalhatatlanegyháznak
+hatalmátmindenvilágihatalomföléemelje,aFerrerVicenték,
+aCapistranokésTorquemadákelőfutárja,voltJaymekirály
+gyóntatóatyja...AzapostatavégülDoninMiklósnyomdokába
+lépett,ésdenunciáltaaTalmudot,hogyellenségesérzelmű
+nyilatkozatokattartalmazJézusrólésMáriáról.ElmentIV.
+Kelemenpápához,elmondtaelőttevádjaitéskieszközölttőle
+egyatarragonaipüspökhözintézettbullát,hogyaTalmud
+példányokelkoboztassanak,domonkosésferenc-rendi
+szerzetesektőlmegvizsgáltassanak,ésamennyibentartalmuk
+istenkáromlónaktaláltatnék,megégettessenek.Abullátmaga
+ahitehagyottChristianiPablohoztaelszemélyesena
+püspöknek.ErreJaymekirályelrendelte,hogyaTalmud
+
+
+
+megvizsgáltassákésabenneelőfordulókáromlókifejezések
+töröltessenek.Abírálóbizottságtagjaivoltak:abarcelonai
+püspök,dePenyaforteés3domonkostársa,úgymint:
+ArnoldusdeSigarra,PetrusdeJanuaésMartinRaymund.
+Utóbbiadomonkosiskolájábanmeglehetősalaposan
+elsajátítottaahéber,kaldésarabnyelveketésezta
+tudományátazsidóságésazizlamelleniküzdelemben
+értékesítette.BelevontákabizottságbaChristianiPablotis.A
+bizottságmegjelölteaTalmudbóltörlendőhelyeket.Ezvoltaz
+elsőspanyolcensura,melyenaTalmudátment.Mindenesetre
+enyhébbenütöttki,mintFranciaországban,holazegész
+Talmudmáglyáraítéltetett...ChristianiPablo,kinekkezébe
+kerültavitairatnakegypéldánya,éskihéberültudott,a
+kereszténységlegdurvábbkáromlásátolvastakibelőle,erről
+jelentésttettfeljebbvalójának,dePenyafortenak,akiegy
+szerzetes-társávalegyüttvalóságosfőbenjáróbűntcsinált
+Nachmaniiratábólésformalisvádatemeltakirálynála
+szerzőjeellen."(KohnSámuel-Azsidókegyetemestörténete
+5.-1908)
+Pennaforti Szent Rajmund (Kr. u. 1175-1275)
+Christiani Pablo egy kitért zsidó volt, aki dominikánus
+szerzetessé. Ő, akárcsak korábban a talmudistából
+kereszténnyé lett Nicholas Donin, tökéletesen írt és olvasott
+
+
+
+héberül, továbbá ismerte a Talmudot. Ezáltal az, hogy ő
+kikereste, lefordította és bemutatta az egyházi elöljáróknak a
+Talmudnak azon részeit, amelyekben őrültségek és
+keresztény-gyalázás van, teljesen hiteles bizonyítási eljárás
+volt. Így az ítélőbírák teljesen bizonyosak lehettek az
+igazságos ítélet meghozatalánál. Pablo tanítványa volt
+Raymundus Martin, aki keresztény létére megtanult héberül,
+majd pedig mindenféle zsidó iratot elolvasott. Az ő írásai
+alapján számos egyházi személy szerezhetett pontos
+ismereteket a Talmudról.
+,,Sinzigbenszombatinaponazegészközségetégettékela
+zsinagógában.Sokkeresztény-németcsaláddicsőségetlátott
+abban,hogymennéltöbbzsidótadjonátatűzhalálnakés
+büszkénvettékfölaZsidósütő(Judenbreter/Judenbrater)
+nevet."(KohnSámuel-Azsidókegyetemestörténete5.
+1908)
+A Talmud-elleni inkvizíciós per
+,,Kr.u.1283-banhusvéttájánMainzmellettholtkeresztény
+gyermekettaláltak.Újraazahírtámadt,hogyagyermeketa
+
+
+
+zsidóköltékmeg.Sőtterhelőadatotistudtakmár:egy
+kereszténydajkaadtaeldrágapénzen.Agyermekhullájávala
+vállánindultMainzbaannakegyikrokona,RingGerbaldus
+lovagésnéhánytársa,hogyazsidókonbosszútálljon.Hiába
+igyekezettWernermainziérsek,abirodalomfőkancellárjaa
+felizgatotttömegetlecsillapítani,hiábaígérte,hogya
+vádlottakellenrendespörtinditésabűnösöketa
+legsúlyosabbbüntetésselfogjasújtani.Acsillapításnem
+használt.Ahullaláttáraadühöngésigfelbőszültkeresztények
+rávetettékmagukatzsidószomszédaikra."(KohnSámuel-A
+zsidókegyetemestörténete5.-1908)
+Ekkor 10 zsidót öltek meg, több másikat megsebesítettek, a
+házaikat felgyújtották, az értékeiket pedig szétosztották a
+szegények között.
+,,Rudolfcsászármegvizsgáltakésőbbazügyet,jóváhagytaaz
+ítéletetésamainzipolgárokatfelmentette.Azsidóktól
+elraboltvagyontelkoboztatta,deállítólagnemasaját
+kincstárajavára,hanem,hogyszétosszaakeresztény
+szegényekközött.AmainzimészárlásnapjánBacharachban
+istöbbzsidótöltekmeg...Néhánynappalkésőbbmegöltek
+Brückenhausenben16zsidótésnéhányhéttelazelőtt
+felgyújtottákamurlichstattiközségnekegyrészét."(Kohn
+Sámuel-Azsidókegyetemestörténete5.-1908)
+Ezt követően Münchenben, Kr. u. 1285. október 11-én a
+németek megtorolták azt, hogy pár nappal korábban a zsidók
+egy keresztény öregasszonytól megvettek egy kisgyereket,
+akit ezután megöltek. Mikor ez kiderült, hatalmas tömeg indult
+a zsidók megölésére, amely részben sikerült is. Egy részüket a
+helyszínen meg tudták ölni, a többi pedig a zsinagógába
+menekült. Erre a tömeg felgyújtotta a zsinagógát és a bűnös
+zsidók alászálltak a Pokolra. 180 zsidó halt meg a tűzben.
+Majd a Bacharach melletti Oberweselben öltek meg a
+keresztények bűnös 40 zsidót, mert azok korábban megöltek
+egy Jó Werner nevű köztiszteletnek örvendő németet. Jó
+
+
+
+Werner annyira tiszta lelkű és szent életű ember volt, hogy a
+zsidók által ejtett halálos sebeiből fény áradt ki. Ezután Jó
+Werner sírja zarándokhely lett, ahová főként gyógyulni vágyók
+mentek. De a zsidók, akárcsak Izzás esetében, az uralkodót
+pénzzel vesztegették meg:
+,,Acsászárakkoris,mintmindig,pénzzavarbanvolt,
+tárgyalásbabocsátkozottazsidókövetekkel.Azsidók20.000
+ezüstmárkátajánlottakfelneki,hamegbüntetiazoberweseli
+ésböppardizsidógyilkosokat,szabadonbocsátjaR.Méirtés
+védelmetnyújtnekikatömegkitöréseiellen.Acsászár
+beleegyezett.Azoberweseliésböppardipolgárokat2000
+márkapénzbüntetésreítélteésmeghagytaamainziérseknek,
+hogyégettesseelazOberweselbenmeggyilkoltWerner
+holttestétéshamvaitszórjaszétavárosonkívül.Deminthogy
+akeresztényekcsodatevőmartyrkénttiszteltékahalottat,a
+püspöknagynépcsődülettőltartottésazértállítólag500
+fegyvereszsidóvalvétettekörülmagát...R.Méirazonban
+mégsemszabadultkiafogságból...R.Méirafogságbanhalt
+meg."(KohnSámuel-Azsidókegyetemestörténete5.-1908)
+Vagyis a jóságos és áldott életű Werner, akinek sírja körül
+csodák történtek, a zsidók számára ellenség volt. Ezért
+vesztegetéssel próbálták meg elérni azt, hogy a szent ember
+testét elporlasszák, a tiszteletét pedig betiltsák. Majd pedig,
+miután ez nem sikerült, zsidó fegyveresek kezdték el védeni a
+püspököt, amely jól mutatja, hogy a korrupt püspök átállt a
+bűnös zsidók oldalára.
+Majd Kr. u. 1288. március 26-án, vagyis pont húsvét előtt
+egy Izsák Hüteleim nevű gazdag zsidót és családját a
+dominikánusok vád alá helyeztek, mert ők elraboltak és
+meggyilkoltak egy keresztény gyermeket. Ezen a bestiális
+cselekményen felháborodva a keresztények inkvizíciós
+eljárást indítottak a zsidók ellen. A nép, miután beigazolódott
+a gyanú, a zsidók kivégzését követelte. 13 zsidót égettek el
+máglyán, pedig ha megkeresztelkedtek volna, akkor az
+ítéletüket enyhítették volna. Ők viszont fanatikus talmudisták
+
+
+
+maradtak és abban bíztak, hogy fanatizmusuk példa lesz
+további fundamentalista zsidóknak, akik majd értük bosszút
+állnak.
+A középkorban nem csak Hispániában és Közép-Európában,
+hanem Angliában is ténykedtek a zsidók. Az okkultizmus és
+különféle tudományok szempontjából Anglia egy központ volt.
+A Kr. u. 14. században született John Wycliffe, aki lefordította
+a Vulgátát angol nyelvre. Ott voltak a lollardok is, akik a
+németalföldi Walter Lollard tanait követték, ám idővel a 2
+mozgalom egyesült és a lollardok Wycliffe követőiként lettek
+ismertek. Majd megtörtént az Anglikán Egyház létrehozása
+VIII. Henrik (Kr. u. 1491-1547) angol király által. Ettől kezdve
+az angoloknak nem számított többé a pápa vagy a Vatikán
+szava, mert az új Anglikán Egyház vezetője az angol király, aki
+után az első egyházi méltóság canterburyi érsek. Ezután pedig
+a különféle reformirányzatok, misztikus és okkult tanokat
+hirdető humanisták központja lett Anglia. Ugyanezért
+telepedett meg itt a szabadkőművesség is.
+A Kr. u. 16. és 17. századok egyik legfőbb gondolkodója John
+Dee (Kr. u. 1527-1609) volt. Sokan mágusnak is nevezik,
+ugyanis alkímiával, angyalidézéssel és más ezoterikus
+tudományokkal is foglalkozott, a csillagjósláson, asztrológián
+és matematikán kívül. Legfőbb műve a Monas Hieroglyphica
+(Kr. u. 1564). Mindezt megelőzi Christian Rosenkreutz (Kr. u.
+1378-1484) könyve, a Chymische Hochzeit (Kr. u. 1459),
+amelyet csak Kr. u. 1616-ban publikáltak. Később azt kezdték
+el feltételezni, hogy az egészet egy Johann Valentin Andreae
+(Kr. u. 1586-1654) német teológus írta, ám minderre
+bizonyíték nincsen. Rosenkreutz ezen művében gnosztikus
+keresztény tanokat elemez, illetve ír a Monádról, vagyis
+Istenről. A Monádról szóló tant dolgozza ki John Dee
+hermetikus művében.
+,,AMonasHieroglyphicaazeurópaihermetikusirodalomegyik
+alapművelett,shamarosanszámostovábbikiadásáraissor
+került.Arövidértekezésbenatudósszerzőmegkísérelte
+összefoglalniavilágrólalkotottképétsegyolyan
+
+
+
+matematikai-filozófiaijelképet-Monádot-alkotni,amely
+képeskifejezniavilágegységét,sígyavilágegészétrepre
+zentálvamágikuserővelisrendelkezik...Angolul,hazájában
+isnépszerűsítetteaneoplatonista-hermetikustudomány
+eredményeit."(SzőnyiGyörgyEndre-JohnDeeangolmágus
+ésKözép-Európa-1979)
+John Dee (Kr. u. 1527-1609)
+angol csillagász, matematikus és okkultista
+John Dee sok szempontból megalapozta az angol nyelv
+tudományos terminológiáját, amely a Kr. u. 16. századi
+Európában még a latin volt. Új szavakat és kifejezéseket is
+alkotott, a latin eredetijük mintájára. London melletti házában
+afféle magánakadémiát hozott létre, hasonlót a francia
+Pléiade mellett működő Jacques Gohory hermetista köréhez.
+Dee nemcsak könyvtárát és filozófiai-matematikai ismereteit
+
+
+
+bocsájtotta tanítványai rendelkezésére, hanem maga is
+dolgozott az akkor kibontakozó angol expanziós tervek
+tudományos megalapozásán. Elsősorban a híres Észak
+nyugati Átjáró felkutatása izgatta. Hajózási és csillagászati
+kézikönyveket írt, naptár-reformra tett javaslatot,
+együttműködött a kor neves felfedezőivel.
+,,Találkozottakéteshírűalkimistával,EdwardKellyvel,akia
+médiumalett,ésegyüttműködésükeredményeképpenDee
+egyrekizárólagosabbankezdettfoglalkozniazokkult
+tudományokAgrippaáltalleírtlegmagasabbfokozatával,az
+angyalidézőmágiával.Ennekfilozófiaiéstudományos
+értékelésenemedolgozatfeladata,annyitazonban
+megállapíthatunk,hogymaifogalmainkszerintDeee
+tevékenységéttelepátiávalésparapszichológiával
+kapcsolatoskutatásoknaktekinthetnénk.Angyalidézéseik
+érdekesdokumentumaaTrueandFaithfulRelations(Kr.u.
+1659).cíművaskoskötet,amelyetMericCasaiibonadottkia
+Kr.u.17.századbanDeefennmaradtnaplói,feljegyzései
+alapján.AgyűjteményDeeésjónéhányszellem,közöttüka
+Szentlélek,Kellysegítségévellefolytatottpárbeszédét
+tartalmazza,ugyanakkorértékesadatokatisafurcsa
+tudóspárosegyüttműködéséről,vándorlásairól."(Szőnyi
+GyörgyEndre-JohnDeeangolmágusésKözép-Európa
+1979)
+A Monas Hieroglyphica értelmezése 4 egybevont szimbólum:
+a felső félhold, a kör és a középpont, majd a kereszt és végül a
+legalsó hullám. Ezek közül a kör és a középpont maga a
+Monád, vagyis Isten. Egyben a Nap szimbóluma is. A félhold a
+Hold szimbóluma, de akár a tudást, illetve a Koronacsakrát,
+vagy a tobozmirigyet is szimbolizálhatja. A kereszt az elemek
+szimbóluma, az alsó hullámvonal pedig a tűzé. Sok esetben a
+jelkép köré rajzold ovális az alkímisták üvegedényét
+szimbolizálja, amelyben a transzformáció megtörténik.
+
+
+
+A Monas Hieroglyphica
+,,Hamispénzdarabokkerültekforgalomba,ahamisítássala
+zsidókatvádolták.Ennekkövetkeztébenegynapon(pénteken,
+1278november17)letartóztattákazösszesangolzsidókat
+feleségestülésgyermekestülésszigorúházkutatástvégeztek
+náluk.Ésbárkitűnt,hogysokkeresztény,sőtszámoslondoni
+nemesisrészesapénzhamisításbanésösszesencsak293
+zsidótillethettekaváddal,mégfs10.000zsidónakkellett
+szenvedniemiattaésmigabevádoltkeresztényeket,három
+kivételével,csakpénzbírságraítélték,a293zsidót
+felakasztották,másokatörökbörtönnelsújtottak,nagy
+részüketpedigkiűztékazországbóléskonfiskáltáka
+vagyonukat...Mégmindigvádoltákazsidókat,hogyterjesztik
+ahamispénzt,sőtbeiscsempésztekhozzájukkívülrőlhamis
+pénzdarabokat...AzsidókNothamtonbankeresztre
+feszítettekegykereszténygyermeket.ErreLondonban
+számoszsidótöltekmegéshullájukatbitófákraakasztották
+(Kr.u.1279.április2.).Majd...meggyaláztákakeresztet,a
+
+
+
+katholikusvallástvagyazIstenanyját.Akirályerrerendeletet
+adottki,hogyavallásgyalázókathalállalsújtsák...Duns
+Scotus(egyetemitanárOxfordban,későbbPárisbanés
+Kölnben)ahíresfranciskánus,akiszellemétazsidóGabiről
+filozófiaieszméiveltáplálta,aztvélte,hogyazuralkodóknak
+kötelességükvolnaelragadniazsidószülőktőlagyermekeket,
+hogykeresztényvallásszerintneveltessékazokat.Sőtaztvéli,
+hogyteljesenrendbenvolna,haaszülőketisegyszerűen
+erőszakkalmegkereszteltetnékésavisszaesőketegyszerűen
+megégettetnék.Ezmindolyanegyszerűdolog."(KohnSámuel
+-Azsidókegyetemestörténete5.-1908)
+A zsidóknak mindenkoron fel volt ajánlva, hogy ha
+megkeresztelkednek, akkor nem kell különleges zsidó-adót
+fizetniük, illetve olyan jogokat kapnak, mint amely a
+keresztény alattvalóké. Ők azért nem akarták elhagyni a
+vallásukat, mert akkor az uzsora, vesztegetés és különféle
+csalási formák által összegyűjtött pénz a királyi kincstárba
+került, ők pedig nincstelenül kezdték volna meg munkás,
+keresztény életüket. Ugyanez magyarázza azt, hogy a zsidók
+1941-től kezdve nem akartak tömegesen a Szovjetunióba
+vándorolni, hiszen ott nekik dolgozniuk kellett volna, illetve
+nem lett volna lehetőségük illegális módon meggazdagodni.
+Ugyanis hiába mondták azt a bolsevikok, hogy ők
+egyenlőségre törekednek, de zsidókból és a cári család
+bizonyos szabadkőműves tagjaiból alakult meg az új
+nemesség, akik alá partkom titkárok, párttitkárok, illetve a
+párttagok. Az uralkodó a párt főtitkára, Lenin volt. Így a kelet
+európai zsidóknak nem jutott volna pozíció a Szovjetunió
+vezetésében. A vagyonukat viszont a Harmadik Birodalom
+elvette, akárcsak a középkori királyok.
+,,Azsidókbarátságosérintkezéstfolytatnakakeresztényekkel,
+visszacsábítjákamármegkereszteltzsidókat,hogy
+szombatonésünnepnapokonkeresztényekkelszolgáltatják
+kiazsinagógákat,keresztényeketezáltalzsidó
+ceremóniákhozszoktatnak.Apápaerreleveletküldöttayorki
+
+
+
+érseknekéslegátusánakésfelszólította,hogyhasználjonfel
+mindeneszköztavisszaélésekmegszüntetésére(Kr.u.1286.
+november)...Akirályújraelfogattaazországösszeszsidóit
+feleségestülésgyermekestül,anélkül,hogytudtákvolna,mi
+adotterreokot.Csaknagyváltságdíjfejébenbocsátottákőket
+szabadon.3évvelkésőbbakirályönhatalmúlag,aparlament
+hozzájárulásanélkülrendeletetadottki,hogyazösszes
+zsidókatazországelhagyásárakényszerítsék.November1-ig
+eladhatjákmindenüket,akitezentúlazországbantalálnak,
+felakasztják.Demielőtttávoznak,kötelesekvisszaadnia
+zálogokatkeresztényadósaiknak."(KohnSámuel-Azsidók
+egyetemestörténete5.-1908)
+Nem szabad elfelejteni, hogy Sólymosi Esztert (1867-1882) a
+zsidók becsalták az eszlári zsinagógába, azért, hogy vegye le
+a menórát a szekrényről, hiszen szombat volt és ők a babonás
+hagyományaik miatt nem vehetik le azt. Ekkor lefogták
+szegény kislányt, majd testének több helyén megharapták, a
+vérét kiszívva. A kóser sakter a kislány nyakát elvágta, majd a
+vérét egy tálba folyatták.
+,,Gascogneból,amelyAngolországhoztartozott,szintén
+kikergettékazsidókat.Aszámüzöttekaközeli
+Franciaországbantelepedtekle.IV.Fülöpkirályeleinte
+barátságosanfogadtaőket.Denemsokárarendeletetadottki
+aparlamenttelegyütt,hogyazAngolországbólésa
+Gascognebólátköltözöttzsidókkötelesekaböjtközepéig(Kr.
+u.1291)azországotelhagyni.Ígytehátkénytelenekvoltak
+újravándorbothoznyúlni.EgyrészükNémetországba,más
+részükÉszak-Spanyolországbavándorolt."(KohnSámuel-A
+zsidókegyetemestörténete5.-1908)
+KIDOLGOZÁS ALATT...
+Források:
+
+
+
+Magyar Katolikus Lexikon
+Nagy Képes Világtörténet (1899)
+Luther Márton - A zsidókról és hazugságaikról (1543)
+Országgyűlési Napló (1935)
+Országgyűlési Napló (1884)
+Katolikus Lexikon (1931)
+Egyéb források:
+Valóság (1945)
+Kohn Sámuel - A zsidók egyetemes története 5. (1908)
+*******

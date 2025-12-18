@@ -1,0 +1,34 @@
+---
+master_file: "[[@AndrasfalvyBertalanHal]]"
+---
+# Index for Andrásfalvy Bertalan – Hal, gyümölcs, gyékény az ártérben.pdf
+
+30
+Hal, gyümölcs, gyékény az ártérben
+A „pákászvilág” rejtett értékei
+A
+z egykori ártéri gazdálkodás* a természettel való együttmûködést jelentette, az ember alkalmazkodott a táj nyújtotta lehetõségekhez, és egyensúlyának felborítása nélkül hasznosította annak minden elemét. Az ártér hasznosítása a paraszti életformának sokfelé a földmûvelésnél is fontosabb része volt. Az állattartás (téli legeltetés, takarmányozás) mellett számos vadnövény és -állat is fontos eleme volt megélhetésének (oltott és vadgyümölcsök, különösen ínséges-háborús idõkben, som, galagonya, berkenye, sulyom, harmatkása, böngyöle [azaz gyékény-gyökértörzs], vízi madarak és tojásaik, teknõs, méhészkedés). Emellett a paraszti életmód nélkülözhetetlen kellékei (faanyag, gyékény) származtak az ártérrõl.
+Ártéri halászat
+Az árterek halászata elsõsorban a kiáradt víz szétvezetésére és annak apadáskori visszavezetésére épült. Áradáskor a vizet szét- és utána visszavezetõ fokok, mesterséges árkok a vízzel együtt a halaknak is utat nyitottak,
+és nekik a könnyen felmelegedõ, sekély víz kedvezõ környezetet biztosított a szaporodásra. A ponty például itt, az elárasztott réteken találja meg azt a szárazföldi növényzetet, melyre ikráit lerakja, mely ha arról kemény talajra hull le, megmarad, ha iszapba, oxigén híján elpusztul. A középkori Magyarország legendás halbõsége is elsõsorban ennek köszönhetõ. Mátyás király idejébõl idéztek egy elterjedt mondást, miszerint Magyarországon egy folyó két rész vízbõl és egy rész halból áll. Igaz, hogy a dombvidékeken a völgyekben duzzasztott halastavak százairól vannak adataink ott, ahol ma emberemlékezet nincs arról, hogy valaha halastó lett volna –, az eke tucatjával forgat ki hálónehezékeket, amikor fölszántanak egy völgyfeneket a dombvidéken. (A Tolna megyei Völgységben, Somogyban vagy az erdélyi Mezõségben.)
+A legtöbb halat a nagy folyók áradása után, a kiáradt víz visszafolyásánál fogták, a vizet visszavezetõ fokok elrekesztésével. A fából, vesszõbõl készített rekeszek áteresztették a vizet és a kisebb halakat, de a nagyokat nem. Egy német katona jegyezte fel a 16. század közepén Magyarországon jártában, hogy elõfordult, hogy egy ilyen gerendákból és vesszõkbõl készített, fokot elzáró rekeszre akkora tömeg hal zúdult a víz apadásakor, hogy áttörte azt. A kifogott halak nagy részét feldolgozták, kibelezték és besózva szárították, ez volt a „szivatos” vagy „szivárított” hal. A belsõségeken sertéseket hizlaltak az úgynevezett „hasító” tanyákon.
+Gyümölcsök a köz tulajdonában
+Magyarország nemcsak rendkívüli halbõségérõl volt híres, hanem gyümölcseirõl is. A magyar gyümölcsészetnek is az ártér volt legjelentõsebb területe. Az alma, körte, szilva és dió szereti a vízközelséget, az ártér magasabb szintjét, ahol már a keményfa is megél. Igen nagy, ma már elképzelhetetlen menynyiségben ették nyersen, aszalva, csigernek (gyümölcsmustnak), ecetnek és lekvárnak feldolgozva. A gyümölcsfák megnemesítve, szétszórva az erdõben, fás legelõn voltak, közterületen, köztulajdonban. A 18. század végén, akkor sem mindenhol, kerül a fa termése-gyümölcse családi tulajdonba, fája továbbra is köztulajdon maradt. A 19. században külön hagyaték tárgya a kaszálórét és a rajta lévõ gyümölcsfa termése. Elõfor
+A lecsapolás elõtti mocsarak, rétek megszokott képe: pákásztanya a rétben. Fametszet, 1887
+Apadáskor elrekesztett fok, a rekesz közepén vesszõvarsa. Jobboldalt takarmánynak csonkolt fûzfa, egyéves vesszõkkel
+* Andrásfalvy Bertalannak a Históriában megjelenõ cikksorozata az egykori ártéri életet mutatja be (vö. Élet az ártérben. 2009/4.; Állattartás és erdõ az ártérben. 2009/5–6. szám).
+
+
+
+31
+dult, hogy más örökölte a rétet és más a benne lévõ fa termését. A fa maga köztulajdon maradhatott. A gyümölcs szedése, aszalásra való feldarabolása, a keszõce (híg lekvár) fõzése a leányok feladata volt, ezért azok gyümölcséréskor kiköltöztek az ártéri szállásokba, és e munka mellett itt gondozták a kivitt baromfit is. Mint minden jelentõs terménybetakarítás, szénagyûjtés, aratás-hordás, szüret, a gyümölcsszedés és -feldolgozás is a párválasztással kapcsolatos vidám szokásokkal járt.
+A gyümölcsfák kiirtása
+Sajnos, kevés adatunk van egy-egy falu, illetve gazda gyümölcsfaállományáról az elkülönözés és erdõkisajátítás elõtti idõkbõl. A Tolna megyei Mado
+csáról fennmaradt híradás azonban az egész ártérre jellemzõ lehet. A madocsaiak nem nyugodtak bele abba, hogy erdeiket és benne gyümölcsfáikat elvesztették a 18. század végén, ezért azokat összeírták, kártérítés reményében. Volt jobbágy, akinek csak két almafája, két körtefája és 104 szilvafája volt, de volt olyan is, akinek 76 almafája, 48 körtefája és 635 szilvafája volt. Az uradalom, miután elvette az erdõk nagy részét, írja a jegyzõ a falu protokollumába, „ki vagdaltatták szegény házunk népének élelmet adó drága gyümölcsfáinkat... szívfojtó érzés volt látni, hogy amint atyáink terhes munkával kiirtatott s megtisztított Földön plántált és oltott szép fák, melyek 70 és 80 esztendõk alatt nevelkedtenek fel oly nagyra edgy két óra alatt mint
+pusztítatnak el! Életemtõl inkább foszszanak meg, kiáltá könyörögve a sok síró szegény, csak fáimat, gyermekeimet tápláló fáimat kíméljék!”
+Gyékény, paprika, káposzta
+Volt még jó néhány ártéri haszonvétel, melyeknek fontosságát nehéz ma igazán megérteni. Például a gyékény is az ártér fontos terméke lett. A gyékényszõttes a középkori lakás egyik legfontosabb, nélkülözhetetlen kelléke, berendezése. Jó hõ- és nedvességszigetelõ volta miatt ezen ülnek, ezen alszanak, ez képezte az ágyat. A Margit királyleány kolostori alázatosságát említõ legendából megtudjuk, hogy õ nem feküdt az apjától kapott ágyba, hanem a többi nõvérhez hasonlóan, továbbra is csak gyékényén aludt. Gyékényt feszítettek nap és esõ ellen a kocsikra, szekerekre, gyékényre tették ki az árut vásárokon, azzal takarták be a melegágyban nevelt palántákat éjszakára a fagy ellen. Gyékénybõl terménytartókat, méhkasokat, köteleket fontak, azzal kötötték meg a kerítések, vejszék nádfalait stb. Buzogánya a taplót helyettesítette tûzcsiholásnál, ennek gyûjtésével foglalkoztak a pákászok. Nem szóltunk még az árterek kimagasló halmain (melyeken télen a jószág éjszakázott, és éppen ezért termékeny, zsíros földû volt) folyó kertészkedésrõl. Nem véletlen, hogy leghíresebb, paraszti kertészközpontjaink ártérben voltak. A szegedi, kalocsai, bogyiszlai, cecei paprikaközpontokról neveztük el legfontosabb fajtáinkat. Ártérben termett a legjobb káposzta és len is.
+ANDRÁSFALVY BERTALAN
+Mednyánszky László: Mocsaras táj. Olajfestmény, 1880 körül
+A kerítõhálót a halászmester irányításával partra húzzák Komáromnál Gyékénysodró asszonyok, lányok. Fametszet, 1887
+Magyar Nemzeti Galéria

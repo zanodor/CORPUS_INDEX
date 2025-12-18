@@ -1,0 +1,27 @@
+---
+master_file: "[[@AratoIstvanMinden]]"
+---
+# Index for Arató István – Minden tisztelet, de....pdf
+
+Dr. Arató István: Minden tisztelet, de... 1. oldal
+2 / 1. oldal
+Minden tisztelet, de...
+Minden tisztelet Aczél Józsefé és más, nagy munkát végző kutatóké, de ellentmondanom kell mind következtetéseiknek, mind módszereiknek.
+Minden szóbúvár hangsúlyozza a gyökök jelentőségét, de mégsem gyökökből eredeztetnek, hanem már kialakult magyar szavakból. Azonban le kell szögeznünk, teljességgel kizárt, hogy a magyarból eredne a görög nyelv, sőt az is, hogy – néhány kivételtől eltekintve – görög szavakat lehetne magyar szavakból származtatni. (Ilyen csak gyökszavak esetén fordul elő) Igaz fordítva is: Nem ered a magyar a görögből. Mindez történelmileg is lehetetlen. E megállapítások fennállnak a latinra és minden más nyelvre is.
+Ugyanakkor mindannyian jól látjuk, hogy rendkívül sok közös vonás van a magyar és igen sok más nyelv között. Ennek oka, hogy ezen nyelvek gyökei a magyar nyelv gyökeivel egyeznek vagy azokkal rokonok. Ebből sokan vonták le helyesen azon következtetést, hogy léteznie kellett egy eurázsiai ősnyelvnek, melyből a legtöbb nyelv eredt, s melyhez a magyar nyelv áll a legközelebb. (A magyar az ősnyelv közvetlen származéka) Kis túlzással azt mondhatjuk, hogy ezen ősnyelv nem más mint a magyar gyökei, amelyben még sem ragozás, sem képzőkkel való szóképzés nem volt.
+Tehát helyesen csak azt állapíthatjuk meg, hogy a görög, a latin, stb ezen ősnyelvből – azaz a magyar nyelv gyökeiből – ered. Megjegyzem, az ősnyelv szavaiból (azaz a magyar gyökeiből) nemcsak néhányszáz görög vagy latin szót lehet származtatni, hanem a teljes görög és latin alapszókincset.
+Pl. ezért semmiképpen nem eredhetett az angol foot a magyar fut szóból és megfordítva sem, a fut nem eredt az angol foot-ból. De nem eredhetett a foot (és a német fusz) még a görög pousz (láb, lábfej; pata; futás, fürgeség, stb) szóból sem. Mindezek a FU v. FÚ gyökből, azaz az ősnyelv FU v. FÚ szavából eredtek. Ez folyás-fúvás jelentésű gyök. S e gyök folyás-jelentése a magyar fut szó jelentései között fenn is maradt:
+kifutott a tej – kifolyt,
+felfutott a fára (felfolyt; – a futónövény, a folyondár), kifutott a véraz arcából (kifolyt, lefolyt onnan a vér; azaz elsápadt), a vizek lefutása, vmilyen a dolgok lefutása (lefolyása); futóhomok, stb [ld még CzF FUT 3. jelentését]
+Hasonlóan, a corona az ősnyelv KOR szavából, sőt K♣R bokrából ered, méghozzá a NA ((o)na) képzővel képezve. Mely képző jelentéseit már több írásban is említettem. S ezen képző is a magyar nyelv gyöke, azaz az ősnyelv szava.
+A szófejtések hibái abból erednek, hogy az egész magyart tekintik az ősnyelvnek és így már kialakult magyar szavakat tekintik kiindulási alapnak. Hibás azon származtatás, mely szavakat tesz egymás mellé, mondván egyikből ered a másik. Ráadásul az így párosított
+
+
+
+Dr. Arató István: Minden tisztelet, de... 2. oldal
+2 / 2. oldal
+szavaknak csak egyetlen jelentését adják meg. Azonban a nyelvekben a szavaknak többnyire sok jelentése van, így ez nagy hibalehetőséget hordoz magában. S mivel indoklás nélkül választanak ki adott jelentést, ez önkényes is. Ebben ugyanazon hibát követik el, mint a hivatalos eredeztetés. Így a szavak jelentései közötti összefüggéseket sem kutatják, pedig azok szinte mindig elvezetnek a szógyökhöz és jelentéseinek felismeréséhez.
+Azonban óva intek minden ősnyelvészt attól, hogy ezen felbuzdulva nekiugorjon származtatni a magyar gyökeiből valamely nyelv szavait. (Fölösleges munkától és őrlődéstől, csalódástól kíméli meg magát.) Ugyanis ehhez ismerni kéne, hogy mik a magyar gyökei. Nos, – a CzF szótár dacára – nem ismerjük. (Nincs és még nem is került napvilágra ennek alapos és pontos leírása) Sajnos a CzF szótárban sok esetben hibás annak megállapítása, hogy mely szavak erednek adott gyökökből. Olykor a gyök felvétele (annak megállapítása, hogy mi a gyök adott szavaknál) is hibás. Sokszor nem is közlik a gyök jelentéseit vagy ha igen, hiányosan, sőt hibásan. Több gyök is hiányzik; némely CzF-gyök pedig nem gyök. Továbbá, a magyar egyik legfontosabb elemének a képzőknek egyáltalán nem adják meg a jelentéseit. Sok esetben értelmezési hibákat is láthatunk és egyéb hibákat is, melyek sulyosbítják a dolgot.
+Gyakran a szavak jelentései sem teljesek. A CzF szótár szavainak jelentéseit ki kellene egészíteni a szócikkekben lévő kifejezésekből és példamondatokból leszűrhető jelentésekkel, s főleg a tájszótárakban található jelentésekkel. Sőt, a tájszótárakban található szavakkal is, ugyanis sok olyan van ezekben, melyek hiányoznak a CzF-szótárból. Valamint a szavak jelentéseinek körülírással való meghatározását ki kellene egészíteni – a szótárakban szokásos – szavak, rokonszavak felsorolásával történő meghatározással.
+Nos, mindezek miatt és nélkül nem remélhető, hogy megállapitsuk és helyesen értelmezzük a magyar nyelv elemeit. Még kevésbé várható, hogy belőlük helyesen származtassunk. Enélkül nekifogni olyan mintha egy házat alapozás nélkül építenénk. Magyarán, előbb a magyar nyelv felfogásában kéne rendet rakni és az egészet megfelelően értelmezni, rendszerezni, ami kétségkívül hatalmas munka és még várat magára.
+2013. szeptember Arató István

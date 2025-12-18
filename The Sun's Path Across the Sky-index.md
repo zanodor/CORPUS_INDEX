@@ -1,0 +1,44 @@
+---
+master_file: "[[@SunsPathSkypdf]]"
+---
+# Index for The Sun's Path Across the Sky.pdf
+
+Questions about the path of the Sun across the sky
+Michah from Wisconsin wrote:
+Astronomical twilight is defined when the sun's center is 18 degrees below the horizon, nautical twilight is at 12 degrees, and civil is at 6 degrees. According to www.weatherunderground.com, today's (January 12th) twilight times are as follows: Astronomical twilight began at 5:46 a.m. and ended at 6:20, nautical began at 6:20 and ended at 6:56, and civil began at 6:56, then sunrise was at 7:28 a.m. Since they are all segments of 6 degrees of rotation, how can the times between them be different? Additionally, if the average time it takes to travel 6 degrees is 34 minutes, and there are 60 groups of 6 degrees, it would mean that there are 2,040 minutes in a day, which isn't true, there are only 1,440. How can these things be explained?
+You ask some good questions. This will take a little time to explain.
+Let me start by trying to draw a picture showing the path of the Sun through the sky. In the figure below, I'm standing in the middle of a big, flat field, looking to the South (away from the viewer, so you see the back of my head). It's late in the afternoon, and the Sun is starting to set in the western portion of the sky. I've drawn in gold the path the Sun makes as it rises in the East, reaches its highest point at noon, then sets in the West.
+I can't see the Sun at night, because it lies below the horizon, and its light is blocked by the body of the Earth. But if I could make the Earth into a transparent sphere of glass, I would see the Sun at all times, and I could draw the path it makes: rising in the East, reaching a maximum altitude in the South at noon, setting in the West, then dropping farthest below the horizon to the North at midnight, and then climbing up again towards the East for the next day's sunrise.
+
+
+
+The path the Sun makes through the sky is actually a big circle. It doesn't look that way on my picture, because I'm projecting a three-dimensional world onto a flat screen (and because I'm a terrible artist); instead, on the screen, it looks like an ellipse. The important thing to note is that the path is curved -- it is NOT a straight line.
+Now, you ask about the motion of the Sun just before sunrise. Let's zoom in and take a very close look at the Eastern horizon just before sunrise. I'll draw a new picture that shows only a small section of the sky, centered on the Eastern horizon.
+
+
+
+The horizontal lines mark the positions that correspond to the several types of twilight that you mentioned: civil twilight, when the Sun is 6 degrees below the horizon; nautical twilight, 12 degrees below; and astronomical twilight, 18 degrees below. I've also drawn the path of the Sun as it moves along its big circle. In this region of the sky, near the Eastern horizon, we are looking at only a small portion of the circle; that means that the path of the Sun is only slightly curved.
+However, the path is curved a bit. It is not a straight line, so the length of the path between each set of twilight lines is not the same. You can see that the golden path between the 6-degree line and the horizon is slightly longer than the golden path between the 18-degree and 12-degree lines, for example. That means that the Sun won't take exactly the same amount of time to move from one twilight line to another, and so we can expect small differences between the intervals between the different types of twilight.
+Note that the path of the Sun is tilted relative to the horizon. That means that, as the Sun moves from the civil twilight line to the horizon, it is travelling MORE than 6 degrees along its golden path. The purely vertical distance in this diagram between those two lines is 6 degrees, yes, but the Sun travels along a slanted line between them. If you work out the geometry, you will find that the actual distance the Sun travels along its path is about 8.5 degrees: 6 degrees vertically and about 6 degrees horizontally. If it takes the Sun 34 minutes to travel 8.5 degrees along its path, then the Sun is moving at an angular speed of (8.5 degrees) / (34 minutes) = 0.25 degrees per minute. At that rate, the Sun will travel (0.25 degrees per minute) * (1440 minutes) = 360 degrees in a single day (just as you would expect).
+You live up in Wisconsin, at latitude +43 North. That's just about the same as my latitude in Rochester, New York. I have drawn the figures so that they correspond to the motion of the Sun in the sky as seen from our locations in January: the Sun rises southwards of due East, reaches only a small altitude above the southern horizon at noon, then sets to the south of due West. This path changes throughout the year: during our summer, in July, we see the Sun rise to the _north_ of due East, rise high above the southern horizon at noon, and then set to the _north_ of due West. The changes are due to the tilt of the Earth's axis relative to its orbit around the Sun.
+The exact path the Sun makes depends on both the time of year, and also on the latitude of the observer. Let's consider the latitude effect first. A person who lived in Ecuador, for example, would see quite a different path than we do. There is one situation in which the Sun's path is not tilted, relative to the horizon. If you were standing on the equator of the Earth, at latitude zero degrees, and you watched the Sun rise on the day of the spring equinox (or fall equinox), you would see it move like this:
+
+
+
+It would rise perpendicular to the horizon, travel in the sky so that it reached the zenith, directly overhead, at noon, then fall back down and set on the western horizon. If you were to measure the time it took the Sun to travel from civil twilight to sunrise, moving 6 degrees, and multiplied that times 60, you would find a time of 1440 minutes to travel 360 degrees. In this special situation -- watching the Sun from the equator of the Earth, on the day of an equinox -- you can use the intervals between the different types of twilight to calculate accurately the length of a day. It works because this in this situation (and this situation only), the Sun's track is perpendicular to the horizon.
+The time of year also has an effect on the path the Sun takes through the sky. If you, at latitude +43 degrees North in Wisconsin, were to go outside on days in the middle of each season -- winter, spring, summer and autumn -- and watch the Sun as it moves across the sky, you'd see it take different routes:
+
+
+
+If you were to stand and face the Eastern horizon as the Sun rose (and could see through the solid body of the Earth), you'd see that the angle between the Sun's path and the horizon changes:
+
+
+
+At your particular latitude, the rising Sun increases its altitude a bit more quickly near the equinoxes (spring and autumn) than it does at the heights of summer or depth of winter. That means that the interval between civil twilight and sunrise will be a bit shorter in spring and autumn than it will be in the summer or winter. The differences are pretty small, though: civil twilight lasts 31 minutes near the equinoxes, 36 minutes at the winter solstice, and 40 minutes near the summer solstice. If you weren't watching carefully, you probably wouldn't notice.
+However, at other latitudes, the Sun's path would be different, and these times for twilight could change considerably. If you were to go near the Artic or Antarctic circles (latitudes +66 or -66 degrees, respectively), you'd see that the Sun sometimes skims just barely below the horizon for very long periods of time. Near the Earth's poles, the Sun can stay below the horizon for months at a time. The reason that latitude is so important is because the Earth's axis is tilted by 23.5 degrees relative to its orbit around the Sun. During our summer, we in the Northern hemisphere are tilted towards the Sun
+and during our winter, we are tilted away from the Sun
+
+
+
+The combination of the Earth's tilt, its motion around the Sun, and the rotation of the Earth all combine to make the Sun appear to move through our sky. When you add in the fact that the Earth's orbit is not a perfect circle, but an ellipse, and that it moves a bit faster around the Sun at some times of the year than others, you end up with a very complex situation. If you want to explain the apparent path the Sun takes through our sky very precisely -- down to the minute of time, or to a fraction of a degree in angle -- then you have to include all of these effects. It is not an easy calculation!
+(And, in real life, the exact time of sunrise or sunset is complicated by the refraction of sunlight in the Earth's atmosphere near the horizon, but I've ignored THAT, too, for this discussion).

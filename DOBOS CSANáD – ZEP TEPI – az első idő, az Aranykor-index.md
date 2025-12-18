@@ -1,0 +1,174 @@
+---
+master_file: "[[@DOBOSCSANaDZEP]]"
+---
+# Index for DOBOS CSANáD – ZEP TEPI – az első idő, az Aranykor.pdf
+
+• ZEP TEPI – az “első idő”, az Aranykor
+naput.hupont.hu /91/zep-tepi-az-elso-ido-az
+Homérosz,Toldi,Csontváry a NAPÚTon, Minósz/Mithrász, 3500 éves szupernaptár
+“Krónikákat, történelmet lehet hamisítani, de a Nap járását az égen nem!” Iliász a napúton? Odüsszeia, mint vízöntő-paradoxon tanulmány? Kitatált-e a Képes Kornika? Bronzkori szupernaptár?Nap-Hold-Vénusz:Toldi trio, MINÓSZ Kréta és MITHRÁSZ kultusz.
+2015. február 26.
+Dobos Csanád
+ZEP TEPI – az “első idő”, az Aranykor
+Iulius Caesar által Kr. e. 45-ben bevezetett Juliánusnaptár meglepően pontatlannak bizonyult. A 128 évenkénti egy napnyi csúszása komoly eltéréseket eredményezett az egyházi ünnepekben és a Nap járáshoz képest is. A Ceasar által bevezetett naptár pontatlansága ezért is meglepő, mert már évezredekkel korábbról ismerték mind Egyiptomban, mind Krétán és Mezopotániában azokat a pontos naptárakat, melyekkel akár 26 000 évet is pontosan, csúszás nélkül is lehetett mérni. Ezek ismeretében jogos a kérdés, hogy Ceasar számára az alexandriai görög, Szoszigenész miért nem egy pontosabb naptárat készített, vagy ha már az egyiptomi Szóthisz periódust követő naptárat vette is alapul, akkor miért nem alkalmazta azokat a korrigáló megoldásokat, amelyekkel a mi Gergely naptárunk is él? Mégis, mi lehetett az oka, hogy Ceasar egy pontatlan, alkalmatlan naptárat kapott?
+E kérdés már régóta megfogalmazódott bennem, de a ráadandó válasszal mégis eddig várnom kellett.
+A gizai fennsik 38 000 évvel ezelőtti csillagállása és a Dzsed-oszlop
+Miért DECEMBER 25-e a KARÁCSONY napja? (http://www.naput.hupont.hu/90) tanulmányom megírását követően továbbra is hiányérzetem maradt. Bár a Szíriusz csillag heliákus kelése (Nap- Szíriusz együttes hajnali felkelte) és annak december 25-i eltolódása a naptárban egy érdekes csillagászati kapcsolatot jelez mely megmagyarázhatja a különféle napistenségek (Mithrász, Jézus) mitológiai születési dátumát, de ez mégsem volt elégséges számomra. Bár a tanulmányaimban szinte állandó jelleggel a NAP-HOLD-VÉNUSZ hármasságra hivatkozom, ez a csillagászati felismerés továbbra sem adta meg kielégitően a választ ezen égi hármasság oly fontos szerepére.
+A bizonytalanságomat még növelte Aranyi László 2015. január 25-i észrevétele: “A Szíriusz soha életben nem jelezte a Nílus áradását, legfeljebb kb 26.000 évenként, és akkor sem tartósan. Egyébként is a szövegekben egy vörös fényű csillag, a Sóthis!!! - szerepel, amelyet tévesen a Szíriusszal azonosítottak!!!”
+Aranyi felvetése, csak megerősitette bennem a gondolatot, hogy esetleg egy újabb és újabb precessziós (26000 éves ciklussal) korábbi időszakokra is érdemes lenne megvizsgálni a csillagos égboltot. Amig nekem a hiányzó
+1/12
+
+
+
+megfelelő planetarium program miatt ez nem sikerült, addig ezt megtették mások helyettem. A http://www.ancient-origins.net/ancient-places-africa/36400-bc-historical-time-zep-tepi-theory-002617 oldalon aztán egy érdekes tanulmányra lettem figyelmes. (Ezen oldal magyar fordítása Száraz György honlapján is elérhető: http://boldognapot.hu/blog/krisztus-elott-36400-ev-a-zep-tepi-tortenelmi-idopontja/)
+A lényeg röviden: 36 400 évvel Jézus születése előtt (közel 26 000 évvel az i.e.10 400 misztikus dátum előtt) az csillagos égen, a gizai fennsik felett egy érdekes csillagászati együttállás volt tapasztalható a tavaszi napéjegyenlőség pillanatában (Armando Mei kutatásai alapján):
+A Nap pont keleten, az Oroszlán csillagkép előtt emelkedett fel a horizont fölé, miközben az oroszlánfejű Szfinx önmagával nézett szembe. A Négy bolygó (Jupiter, Merkur, Vénusz és a Mars) sorban álltak az égi egyenlitó mentén a felkelő Naptól az IKREK csillagképig (Orion/Nimród kinyújott kezéig.) A horizont felöli részén ráadásul a Nap és Hold szintén együtt jelent meg. Mintha oszlopként sorakoztak volna a bolygók az égi egyenlitő mentén, miközben az Orion pontosan a piramisok felett emelkedett fel.
+Mivel az internetes oldalam egyik fő témája a homéroszi eposzok szimbólikája, a napút logikája, ezért fontosnak tartom ezen “bolygók” együttállását újra kihangsúlyozni. A Nap (Apollón) -Hold (Artmisz) - Jupiter (Zeusz) Merkur (Hermész) - Vénusz (Aphrodité) és a Mars (Árész) istenek az Iliászban is egy csoportot alkottak. Mégha kifejezetten nem is támogatták a trójaiakat, de legalább nem ártottak nekik. (Lásd: http://www.naput.hupont.hu/15) Ez csak véletlen egybeesés?
+De maradjunk csak az egyiptomi jelképeknél. A Nap, Hold továbbá a négy bolygó ilyenfajta égi elrendeződése szintén ismerős lehet az egyiptomi szimbólika iránt érdeklődők számára.
+” A dzsed (ḏed) az örökkévalóságot jelölő óegyiptomi fogalom, szó szerinti jelentése „tartósnak lenni”... “Az Óbirodalomban „fenséges dzsed” néven tisztelték a dzsed-oszlopot. Az oszlop ábrázolásának eredete vitatott, a felső rész vízszintes tagolásának értelme ismeretlen.”... “Az egyik legősibb egyiptomi jelkép. A Halottak Könyve az Ozirisz hátgerinceként értelmezi a dzsed-oszlopot. Ez azonban késői társítás az eredeti jelentés elhomályosulásával, és sok más isten kultuszához is kapcsolódik.” – Wikipedia
+2/12
+
+
+
+Az egyik legismertebb Dzsed ábrázoláson mintha folyamatábrát látnánk. Az első képen még nincsenek keresztpántok a két részből álló oszlopon. Mig az oszlop egyik fele már függőlegesen áll, a másik fele viszont derékszögben felette lebeg. Ez lenne talán a derékszögesitett égbolt? Az égi egyenlitő jobb és bal fele?
+A második (a középső) ábrázoláson már az oszlop megdöl és rákerül a négy pant is a kettős púppal együtt. Ez számunkra a legérdekesebb. Mintha ezt látnánk vissza a 36 400 évvel Jézus születése előtt a gizai fennsik égboltján a tavaszi napéjegyenlőség hajnalán? A négy pánt a négy bolygó (Jupiter, Merkur, Vénusz és a Mars) sorbanállását jelképezné, a kettős púp pedig a Nap-Hold párosságát e jeles tavaszi napéjegyenlőség pillanatában.
+A harmadik stációban már biztonságosan áll az oszlop, de némi változtatással. Az oszlop alja kiszélesedett és besötétedett. Hasonló változás figyelhető meg az oszlopállitó Ozrisz ruházatában is. Látványos a lábának “elsötétedése”, a térdek, lábszár, lábfej hangsúlyos ábrázolása. A térd és az alsó lábszár ilyenfajta ábrázolása sosem öncélú, ennek nagy eséllyel többletjelentése van. (Lásd a Mithász ábrázolás “térdmutogatás” szerepét és a vízöntő paradoxon kapcsolatát, melyre most nem kivánok külön kitérni http://www.naput.hupont.hu/74)
+Az Ozirisz mítosz:
+Az ősidőkben Ozirisz uralkodott Egyiptom felett, nővérével, Ízisszel együtt, aki felesége is volt. Ő terjesztette el a kúltúrát és a civilizációt, nemcsak egyiptomban, henem más népek között is. A boldog korszaknak összeesküvés vetett véget, melye t Ozirisz, rosszindulatú testvére, Tüphón (egyiptomi szövegekben Széth) szőtt bátyja ellen, akinek trónját meg akarta szerezni. Ozirisz ezen felül egy alkalommal részegségében akaratán kívül Nephtüsszel, Tüphón feleségével hált, akit Ízisznek gondolt. Tüphón (Széth) titokban mértéket vett Oziriszről, és egy megfelelő méretű pompás ládát csináltatott. Egy lakomán kijelentette, hogy azé lesz a láda, aki pontosan kitölti, ha belefekszik. Mikor Oziriszre került a sor, rácsapta a fedelet, és a ládát a Nílusba vetették. Ízisz megtudta, hogy a ládát a tenger a föníciai partvidékre, Büblosz városába sodorta. Büblosz partjain egy
+3/12
+
+
+
+hangabokor nőtte körül a koporsót, és a növény csodálatosan megvastagodott törzsét a város királya
+palotájába vitette, és oszlopként állíttatta fel. Ízisz elutazott Bübloszba, beállt dajkának a király udvarába. A királyfit halhatatlanná akarta tenni, s tűzbe tartotta éjszakánként, de az anya megleste, és így megfosztotta ettől gyermekét. Ízisz ekkor felfedte kilétét, elkérte az oszlopot, és Egyiptomba vitte. Forrás: http://tortenelemklub.com/
+SZÓTHISZ csillag, Szóthisz periódus
+Ahogy már említettem Aranyi László a hozzászólásában határozottan elkülöniti a vörös fényű Szóthisz (Sothis) csillagot a Szíriusztól. De mit is lehet tudni, e rejtélyes csillagról?
+“Sothis (Greek: Σ θις) is the name of a star that the Egyptians considered unusually significant. The star is not explicitly identified, but there are enough clues for modern scholars to be almost unanimous in identifying Sothis as Sirius.” – Wikipedia
+A Sothis (Greek: Σ θις) név nagyon hasonlit a Σοθος –bölcsesség kifejezésre. Talán nem véletlen az egybeesés e két kifejezés között. Több helyen „Ízisz-Szóthisz kora”-ként is említik e csillagot. Talán ez a Szóthisz – bölcsesség kora lenne a sokat emlegetett ARANY-KORSZAK, a ZEP TEPI- az „első kor”?
+Csak példaként kiragadva, a Károli Gáspár Református Egyetem eszme-, kultúr- és vallástörténeti folyóirata HERMETIKA, ASZTROLÓGIA, MÁGIA V. évfolyam (2013) kiadványa párszor megemliti Szothiszt különféle közegben. Mintha ott is érződne az a bizonytalanság.
+„A fentebb már idézett diodóroszi szövegben ehhez hasonló módon azonosítja Ízisz is magát a Kutya csillagképben lévő Szíriusz Szóthisz csillaggal.”
+„Azt látjuk tehát, hogy Ízisz alakját asztrológiai vonatkozásban több szempontból is értelmezni lehet: azonosítható mint Szóthisz, ugyanakkor mint a Szűz csillagkép is, Hermésszel pedig mindkét esetben kapcsolatba hozható”
+„Mivel a Szóthisz (Szíriusz) csillag felkelése egybeesik a Nílus áradásával, az egyiptomiak úgy gondolták, hogy oka is az áradásnak, így a Szóthisz különleges jelentőségre tett szert.95 V. évf. 2013/4. Műhely – Hamvas Endre Ádám: Κ ρη κ σμου – A világ leánya a két értelmezésben az, hogy Ízisz-Szóthisz és a Szűz csillagkép is életadó kozmikus erőként jelenik meg”
+Tehát egy kiadványon belül, de mégis több eltérő kutató számára a Szóthisz többfajta jelentéssel bír. Ezek szerint a Szóthisz megegyezik a csodálatos Izisszel, ahogy a Szíriusz csillaggal, sőt még a Szűz csillagképpel is. A Szíriusz csillag és a Szűz csillagkép és Izisz itt is összekapcsolódik, ahogy az előző tanulmányban is. Ez meglepő első pillanatra, hiszen a csillagos égbolton elég messze van egymástól a Szűz csillagkép a Szíriusztól. A korábbi tanulmányom olvasói talán még emlékeznek, egy érdekes csillagászati összefüggésre, mely megmagyarázta a Szíriusz és a Szűz csillagkép összekapcsolódásának egyik lehetséges okát:
+„Ahogy szó volt már róla, a stellárium planetarium program szerint i.sz. 11 515 körül (+/-100 év) a Szíriusz eléri az legszélső naptári dátumát és mindezt DECEMBER 25-ÉN, és ezt követően többet már nem
+tapasztalható a Nappal együttes hajnali “színre lépése” öt ezer esztendeig! De ugyanekkor, a tavaszi napéj egyenlőség időpontjában a NAP közvetlenül a Spica mellett, vele egy időben emelkedik a horizont fölé. Szíriusz helyett immár a Spica válik társává a felkelő Napnak. ”
+„Mintha a SZíRIUSZ ekkor adná át időlegesen a Nap-Hold-Szíriusz hármasságban betöltött helyét és szerepét a SZŰZ csillagkép fő csillagának, a SPICÁnak. Meglepőnek tűnhet ez a magyarázat, de ne feledjük el, hogy IZISZ személyéhez több csillag is kapcsoldik: a Vénusz, a Szíriusz és Spica. Aszerint adják át egymásnak a hármasságban betöltött helyüket, ahogy ezt az égi rend ditkálja.” (http://www.naput.hupont.hu/90)
+KÁKOSY LÁSZLÓ FÉNY ÉS KÁOSZ A kopt gnosztikus kódexek könyvének 202. oldalán ez olvasható:
+4/12
+
+
+
+„A Szóthisz periódusok (1461 év) világkorszakokhoz hasonló szerepet játszottak az egyiptomi vallásban. Az egyiptomi „mozgó év" kezdete minden 1461. évben esett egybe a Szóthisz (Sirius) csillag első nyári hajnali feltűnésével az égen.”
+De miért éppen 1461 év? Érdekes számjegy, másfél évezred, melynek mégis milyen kapcsolata lehet a világkorszakokkal, a precessziós nagyévvel, vagy csak egyéb, általunk is ismert más naptár rendszerrel?
+A válasz adja magát, az 1461-es szám negyedelésével: 4x365+1 év.
+„(Maga a Szotisz-év, azaz álló év tizenkét harmincnapos hónapból és öt toldaléknapból állt, s ezeket az utolsó hónap végéhez csatolták.) Ily módon egy négyéves időkör, quadriennium jött létre, alapegységéül vették, s Kisévnek nevezték el (mindjárt megtudjuk, miért).
+Gyakorlatilag azonban a mindennapi életben az egyiptomiak a 365 napos mozgó évet használták, minden kiegészítés, szökőidő nélkül. Ennélfogva az eltérés a Szotisz-év (álló év) és a mozgó év közt egyre nőtt: négy év alatt egy napot, vagyis 365-ször 4 év alatt egy teljes esztendőt tett ki. Így tehát 364 × 4 = 1.460 Szotisz-évnek 1.461 mozgó év felelt meg.
+Az 1.460 éves Szotisz-korszakot Égi vagy Nagyévnek nevezték, mert leforgása jelezte azt az időpontot, midőn a Szotisz-év újévnapja ismét egybeesett a mozgó év újévnapjával. Ez az egyik egyiptomi nagyciklus, és nekünk fontos, mert általa kapcsolódik az egyiptomi időszámítás az ókeleti korszakoló rendszerekbe.” Az idő szívverése (http://kagylokurt.hu/10704/orientacio/tavlat/az-ido-szivverese.html )
+Tehát az 1461 éves Szotis-év alapja a 4x365+1 napból álló időszak, ami a Juliánus naptár 4 éves alapciklusaként is ismerős számunkra. Mivel a Szotis kisévi (4x365 napos) rendszerben nem alkalmaztak szökőnapot, ezért 4 évente 1-1 nap csúszás lépett fel a tényleges időhöz képest. Igy értelemszerűen 365x4 (1460) év alatt az idő csúszás már 365 napot (pont egy évet) jelentett. De tényleg annyit?
+„Az egyiptomi „mozgó év" kezdete minden 1461. évben esett egybe a Szóthisz (Sirius) csillag első nyári hajnali feltűnésével az égen.”
+Újraolvasva Kákosy ezen idézetét érdemes ennek valóságtartalmán újra elgondolkoznunk, hiszen csak részben helyes ez a kijelentés. Ehhez két fő szempontot érdemes tisztázni: az első a Juliánusz naptár pontatlanságához kapcsolódik:
+Mivel a Szóthisz 4x365+1 napból álló (1461 napos) rendszere a Juliánusz naptárnak is az alapja, így a juliánusz naptárnál jelentkező 128 évenkénti egy-egy napos csúszás értelemszerűen jelen van a Szóthisz rendszerben is. (Csak emlékeztetőül, a Juliánusz naptár csúszásának eredményeként a karácsony két hetet csúszik a juliánusz naptárt használó oroszoknál és szerbeknél. Ezért ők csak január 6-án ünneplik a Karácsonyt, december 25 helyett.)
+„A julián (vagy Juliánus-) naptár egy Caius Iulius Caesar által Kr. e. 45-ben– bevezetett naptár... A naptár azalexandriai görög csillagász, Szoszigenész segítségével készült, és célja a keringési idő szerinti év (melyet Hipparkhosz állapított meg) közelítése volt. Szoszigenész 709. március 21-ére határozta meg a napéjegyenlőség napját.
+Az új számítás már elég jól megközelítette az év valós hosszát, de 128 évenként mégis okozott egy napnyi eltérést. A lassú csúszás egyre nagyobb gondot okozott az egyházi ünnepek kapcsán, ezért került sor a XVI. században a Gergely-naptár bevezetésére.”– wikipedia
+Tehát, ahogy a Juliánusz naptárban jelen van egy 128 évenkénti egy-egy napos csúszás, úgy a Szóthisz rendszerben is jelen kell lennie. Így a Szóthisz rendszerben is, minden 1461 év alatt legalább 11 napos csúszásnak kell összegyűlnie. Ha ez a feltevés jogos, akkor 1461 évvel később ezért nem látható ugyanazon a napon, ugyanúgy a Szíriusz közös Napfelkelte. Ehhez a 11 napnyi korrigálást is bele kéne kalkulálni, de erről nem tesz említést egyetlen egy Szóthisz periódust tárgyaló munka sem.
+A másik ok, amiért fenntartással kell fogadnunk Kákosy kijelentését a Szóthisz (Szíriusz) csillag első nyári
+5/12
+
+
+
+hajnali feltűnésével kapcsolatban, már a Szíriusz csillag látszólagos égi mozgásához kapcsolódik.
+Ahogy a Miért DECEMBER 25-e a KARÁCSONY napja? (http://www.naput.hupont.hu/90 ) tanulmányomban jeleztem, a Szíriusz csillag egy 26 000 éves precessziós cikluson belül kb 20 000 éven keresztül jelenik meg hajnalban a Nappal együtt az égen. De e közösNap-Szíriusz “felkelte” nem egy időponthoz köthető. Kb 20 000 év alatt ez a jeles alkalom évenkénti első május végi megjelenése lassan kitolódik december 25-ig. Míg a nagy fáraók idejében ez a dátum ténylegesen a nyári napforduló körüli időpontokra esett (június vége), addig ez mára már jelentős mértékben eltolódott a nyár vége felé.
+Ezek alapján érdemes újragondolni a Szóthisz periódusról gondoltakat és a hozzá kapcsolódó Juliánusz naptár bevezetésének mikéntjét.
+Ha Szoszigenész ismerte a Szóthisz ciklus pontatlanságát (amit joggal feltételezhetünk), a 128 évenkénti egy napos csúszását, akkor miért így, korrigálás nélkül javasolta Julius Caesarnak e naptár
+bevezetését? Miért nem építette bele azokat a korrigáló megoldásokat, melyeket a ma, általunk is használt Gergely naptár alkalmaz? Talán, hogy az „megrövidüljön az idő”? Vagy pedig ennek a hiányosságnak valami más, az egyiptomi mitológiában, hagyományban” rejtve meglévő kultikus oka, esetleg egyéb csillagászati magyarázata van?
+Ha 128 évente egy napot csúszik az idő, akkor ez 1461 év alatt 11,41 nap eltérést jelent. De melyik időhöz képest: a tényleges időhöz képest, vagy pedig a Gergely naptárhoz képest? Vélhetően a Gergely naptárhoz képest. A kettő nem ugyanaz, hiszen a Gergely naptárat is 3200 évente korrigálni kell egy nappal:
+A http://index.hu/tech/hirek/168153/ oldalon az alábbi mondat olvasható:
+„Előreláthatóan 2778 év múlva szükségessé válik egy felesleges nap kiiktatása a naptárból... Az évi 27 másodperces sietés 3200 év alatt adódik össze egy teljes nappá.”
+A Gergely naptár évi 27 másodperces sietségéből további (közel) fél nap többletidő gyűlik össze másfélezer év alatt. Igy az 1461-es rendszer alapján már meglévő 11,41 nap további fél nappal egészül ki, így ezek együtt már közel 12 napos csúszást okoznak a tényleges időhöz képest.
+Ez már figyelemre méltó eltérés: 1461 év alatt közel 12 nap csúszás a Szóthisz periódusban . A 12-es számjegy asztrológiai, csillagászati és naptárszerkesztési szerepét talán nem kell már kihangsúlyozni.
+2014. májusában Phaisztoszi korong, mint tökéletes naptár? tanulmányomban (http://www.naput.hupont.hu/54) igazoltam, hogy a 3500 éves, egyszerű agyagkorong két oldalán spirálisan körbetekeredő, 30 és 31 csoportba elosztott 119 és 123 darabból álló különféle jelek alkalmassá teszik a korongot naptár funkció alkalmazására is. Nem is akármilyen naptár funkcióra, hanem SZUPERNAPTÁR funkcióra. Ezen beosztásokkal olyan pontosan lehet az idő különféle egységeit külön-külön mérni, amire a mi bűszke civilizációnk alig száz éve képes. ( A 365 és 366 napos kisévet, 40 éves periódust és a 25 920 éves precessziós nagyévet ugyanúgy nyomon lehet követni hiba nélkül a korong segitségével, ahogy a Nap Hold naptárak összehangolását, sőt a Nap- és Holdfogyatkozások előrejelzését is...)
+De miért is említem a phaisztos korongot a Szóthisz periódussal egy lapon? Mert a korongot azon a Kréta szigeten találták, mely szoros kereskedelmi és kulturális kapcsolatban volt a fáreók Egyiptomával. Ezért is nagy balgaság lenne azt feltételezni, hogy a csillagászati tudására oly bűszke Egyiptom csak egy 128 évente korrigálásra szoruló naptáron tudta volna csak az időt mérni. Ennek a Szóthisz periódus alkalmazásának valami más oka kellett, hogy legyen. Sőt, ha ismerték az ókori egyiptomiak is a pontos naptárakat, akkor ez csak újra megerősiti a korábbi kérdésünk jogosságát: Szoszigenész miért igy, korrigálás nélkül javasolta Julius Caesarnak a Szóthisz cikluson alapuló naptár bevezetését, azt a naptárét, mely 128 évente egy-egy napot csúszik? Miért nem építette bele azokat a korrigáló megoldásokat, melyeket a ma, általunk használt Gergely naptár alkalmaz?
+A gondolatmenetet ott hagytuk félbe, hogy 1461 év alatt 12 (11,414+0,4565) napot csúszik a a Juliánusz (Szóthisz) naptár. Azaz 123,08 évente alatt a tényleges időhöz képest egy napot (1461 év / 11,87 nap). Ez alapján 44 955 év alatt jön össze az eltérésekből egy teljes naptári év (123,08 x 365,25).
+6/12
+
+
+
+Kerekitési tényezőket is figyelembe véve ez 45 ezer évnek felel meg. Ennek 8 szorosa viszont egy érdekes periódusra mutat: 360 000 év, mely a sumér 3600 éves SAR időszak százszorosa. De miért is lehetett annyira fontos az egyiptomiaknak is e periódusnak a nyomonkövetése? Erre talán a jövő adja meg majd nekünk a választ.
+E tanulmány elején szó volt a rejtélyes i.e. 36 400 –as év különleges csillagállásáról. A 45 ezer éves ciklusból kivonva 36 400 évet az i.sz 8 600-as esztendőt kapjuk meg, ami a Skorpió világkorszak kezdete. De ennek milyen szerepe lehet? Talán kapcsolatban van az Orion csillagképpel? Míg az i.e. 36 400-as eszendő tavaszi napéjegyenlőség pillanatában az Orion pontosan a piramisok fölött tornyosult, addig i.sz. 8 600-ban már pont nyugaton kell elsűlyednie a horizont alá, miközben pont Keleten, a felkelő Nap mögött a horizont fölé emelkedik a Skorpió. Talán kevésbe közismert, hogy a görög Orion mitológiája pont e Skorpió és Orion kapcsolatról szól.
+“A történet szerint ez a skorpió ölte meg Oriont, a vadászt. Az égen is üldözi őt, de itt már sosem érheti el: csak akkor kerül a látóhatár fölé keleten, miután Orion már lenyugodott nyugaton.” – Wikipedia
+Ugyanarról az Orion csillagképről van szó, mint az Ozirisz mitológia kapcsán is emlegettünk. Ahol az Orion nyugaton lehanyatlik, az lenne a tényleges halála Ozirisznak is? A halála, de egyben a feltámadása is?
+De az Ozirisz monda újabb meglepetésekkel is szolgálhat számunkra. Az 108 kiemelt szerepéről, az örökkévalósággal való kapcsolatáról már külön tanulmányban szó volt (http://www.naput.hupont.hu/43), melyhez most az Ozirisz története is bekapcsolódik. Talán nem is olyan meglepő módon a homéroszi eposzokhoz hasonló logikát találunk az Ozirisz történetében is.
+Az Ozirisz legenda összetettségével, kifinomultságával az egyik legjobb példája, az ősi bölcsességek elbeszélésének azon a módon, hogy az olyan művészi szinten történik, amely egy vallás alappillérévé vált. Ozirisz számára testvére Széth, olyan mint az árnyék és mint sötétség, összeesküvést sző a fényt jelképező testvére ellen. Egy ünnepségen gyönyörűen díszített ládát mutat be a jelenlévőknek és annak ajánlja fel, aki méretileg pont belefér. Mivel senki sem tudja, hogy a láda Oziriszhez lett méretezve, ezért mindenki megpróbálja, aki a létben létező, de senki sem rendelkezik azokkal a tulajdonságokkal amiket a láda megkíván. Ozirisz próbálkozik utoljára és ezzel beleesik Széth csapdájába. Önként fekszik bele testkoporsójába. Ekkor hetvenkét (72) összeesküvő ront rá, bezárják a ládába és a Nílusba dobják. Ez a szám a lét örvényét és a halált jelenti. Ennek az áldozatnak köszönhetően innentől a születés esés, a feltámadás felkelés. Ozirisz leesett, hogy felkeljen - meghalt, hogy feltámadjon. Hogy a gyengét emelje, a halottnak örök életet biztosítson. Széth maga a sötétség, a gonosz. Az asztrális anyag az eleme, a víz, a szenvedélyek nedvei. Ozirisz koporsóját Széth a szenvedélyek folyójába dobja, és az eljut az asztrál tengerbe. Partot érése egy szeles, zord kikötő - Biblosz, a fordulat helye, mert itt ér véget az átalakulás. Itt talál rá Ízisz. Mint a nőiség égi lényegisége, isteni gyermeket szült Ozirisznek és a biztonsága gyermek miatt hagyja el koporsóba zárt párját, miután gondosan elrejti. Következményként Széth a karma törvénye által rátalál Oziriszre egy vaddisznó vadászaton és dühében 14 részre tépi testvére testét és szétszórja különböző tájakon. A 14 számjegyeinek összege öt - a pentagram, az okult erők fölötti hatalom. Ozirisz széttépett teste nem más, mint a soksorosára tagolódó világ. Íziszt Ozirisz keresése közben 7 skorpió, az erők 7 fokozata kíséri. És Anubisz - nélküle senki sem képes áthaladni az alvilág mocsarán. Ízisz megtalálja szétszaggatott párja testrészeit és ott temeti el, ahol rátalál, templomot építve föléjük az élet és az örökkévalóság emlékeztetőit. Mindenki aki meghal Ozirisz testének egy-egy darabja és minden feltámadott, Ozirisz, az egésszé lett isten. Ozirisz végső feltámadását Hórusznak köszönhetjük. Megvív Széth erőivel, a sötétséggel és a harcban szerzett sebesülései teszik a 12 ágú szent korona tulajdonosává. Az Atef korona a hatalom jelképe, vele válik a 12 principium uralkodójává. De a teljes világ a láthatóból és a láthatatlanból áll. Fölötte apa és fiú, Ozirisz és Hórusz uralkodik. De a kettő egy. Hórusz a megvilágosodottá vált ember. Ozirisz a Messiássá vált teremtő fő műve pedig a mindenség megváltása a teremtményén át. A kettes szám mindig az ellentétek harcát jelenti, a hármas viszont a következmény, a megalkotott mű, a Fiú. Ő az anyagba való alámerülés - kötés - , vagy a megváltás - oldás - jelentése. A szétszaggatott istent a szeretet, Ízisz szeretete olvasztja újra össze az uralkodóvá vált Hórusz által.
+7/12
+
+
+
+Így lesz az Atya, Anya és Fiú egy. A halált csak halállal lehet legyőzni. Az rész mindig halandó, mert csak töredék. Halhatatlan csak a teljes lény lehet.
+Ozirisz a szellem, a lélek Ízisz és Hórusz a mű. Csak a három (3) sík együttese vezet sikerhez.
+72+14+7+12+3=108
+Sokszor célszerű az egyes tanulmányokban jelezni az elkészültének különféle fázisait. Tudatosan élek most ezzel a módszerrel. Eddig jutottam a gondolataimmal, de két kérdés továbbra is bosszantott:
+- Tényleg létezett valami 45 ezer éves ciklus az egyiptomiaknál, amit kikövetkeztettem a Szóthisz periódusból?
+- Valamint ennek a 45ezer éves periódus 8 szorosának tényleg van e köze a sumér 3600 éves SAR időszak százszorosához?
+Számszakilag, sőt logikailag is adja magát ez a két állítás, de van e jogom ezt így leirni, ha sehol sem olvastam ezzel kapcsolatban semmit, ami ezen feltevéseimet alátámaszhatná. Ezért aztán (bár nem nagyon bíztam a sikerben) mégis két fórumon is bedobtam a csali kérdést „Mégis, mi lehetett az oka, hogy Ceasar egy pontatlan, alkalmatlan naptárat kapott?” Nem mertem nyiltan rákérdezni nehogy befolyásoljam a ráadandó válaszokat.
+Kollarics Gábor hozzászólásából kiderült, hogy legalább 8000 éve használták az egyiptomiak már a Szóthisz ciklust, hiszen „Szoszigenész a juliánusi naptárigazításnál nagyságrendileg két hónapnyit korrigált, hogy az eredetileg csillagok járásához igazított ünnepnapok a helyükre kerüljenek, míg az 1582-es naptárreformban tíz napot kellett csak korrigálni a helyreállításhoz. ”. Közel 8000 évet kellett korrigálnia, ami megint azt igazolja, hogy Egyiptom története messze ősibb, mint amit nekünk tanitanak az iskolapadban.
+Abai-Nagy István a facebookon az Avisurából idézve reagált a felvetett kérdésemhez. Abból az Avisurából, mellyel eddig tudatosan nem kivántam foglalkozni és melyet inkább elvetek, mint sem valósnak tekintek. És mégis, a logikai felvetéseimet éppen ennek a sorai igazolkák vissza:
+"A lerótt Tóremhit szerint Hárpia-Tórem a Holdat Atlantisznál a Földünkhöz vágta. Apály-dagály hullámok megtermékenyítették a tengerek vizét és nyüzsögtek a halak az összes vízben. Napisten azonban nemcsak a vizeket, hanem a szárazföldeket is megtermékenyítette... Amikor a Hold-csapódás megtörtént, 215, majd 113 és 11 évvel hamarabb Kaltesiek érkeztek Ménes későbbi birodalmába, ahová a korábban érkezett beavatottak ezen három alkalommal is összejöttek és Joli-Tórem földjének beavatottjait értesítették egy új jégkorszak kezdetéről. Ekkor eldöntötték, hogy minden száz,
+csillagok járása szerinti évben, a Nílus áradása alatti időben a legalkalmasabb helyen összejönnek és megtárgyalják a várható eseményeket. Ezen megbeszéléseket minden 100 évben megismételték.”
+“Minden száz, csillagok járása szerint az évben, a Nilus áradása alatti időkben” ... Nagyon jó mondat. Sokszor nem is gondolunk arra, hogy többfajta képpen értelmezhetjük ezeket a mondatokat, hiszen a csillagoknak többfajta periódikus égi mozgása van. Ráadásul Nilus áradásához kötve mindezt... Mi ez ha nem éppen a rejtélyes Szóthisz periódus és a mezopotániai SAR időegység kapcsolta?
+És Abai-Nagy István rögtön egy másik adattal folytatja:
+8/12
+
+
+
+" Amun papjai 45 000 év tudását és tapasztalatait őrizték , amely nagyon sokkal több volt annál a maszlagnál, amit az akadémikus tudomány magyaráz erről. “
+Miért pont 45 ezer év? Nincs igazából semmi köze a klasszikus precessziós égi mozgások időtartalmával és a mezopotámiai időegységekkel. Azokkal nincs, de a Szóthisz ciklussal annál több, hiszen 44 955 év alatt jön össze a Sothisz (Juliánusz) naptár eltéréseikből egy teljes naptári évnyi hiba (123,08 x 365,25)!
+Az alexandriai görög, Szoszigenésznek ezért volt fontos egy olyan (látszólag pontatlan) naptárat a hatalmi mámorban úszó, elhivalkodott, az ártalan kelta nőket és gyermekeket lemészároló Ceasar kezébe adni, mely pontosan jelzi, hogy mennyi idő van még vissza az újabb 100 „éves” találkozóig, Ez viszont egy újabb kérdést vet fel, ha elfogadjuk az avisurák ide kapcsolódó sorait: Még mindig zajlanak ezek a 100 (a sumér 3600 éves SAR időszak százszorosa, azaz 360 000) évenkénti találkozók? Mikor esedékes a következő, milyen döntések születnek ekkor?
+De ennek végiggondolását már az olvasóimra bízom.
+KIEGÉSZíTÉS:
+2015. március 11.
+Born Gergely: “Az egyiptomiak az özönviz utáni kezdeti időt Zab tepinek hivták. Számunkra ez beszélő név, mert a Zab egy folyónév. Ráadásul arra a mezopotámiai folyónévre mutat, ahonnan az eredeti egyiptomi lakosság is származik. És ezen a tájékon, egy ici-picit arrébb földrajzilag, az Urmia tó mellett a régészek találtak egy őstelepet, egy várost, melyet egészen a paleotikumig lehet visszavezetni. Jelen tudásunk szerint ez Krisztus előtt 10 ezerben már egy meglévő város volt – ennek a városnak a neve: KeMe. Felmerül a kérdés, hogy akkor honnan ered az elkimia? Beszédes név több részről is. Aki a hangtanban járatos, az tudja, hogy a KEVE alak a KEME-nek egy szabályos hangváltással nyert alakja. KeVe ami régi magyarul többek között azt jelenti: KŐ, az a kő, mely az alkímiában központi fogalom. “
+Kik laknak Egyiptomban és kik laknak itt Mezopotámiában? A szabirok. Az ember itt érzi, hogy lehet a magyarsághoz kapcsolni. A Magyar előnépek történetében a gerincet épp ezek a szabirok adják. Szabárok, szabjánok vagy nevezték őket vallástörténeti néven, szabeusoknak is. Egy tisztességes alkimiai könyv pontosan jelzi, hogy az alkimia ezen népcsoporthoz köthető, ez az ő tudásuk."
+The History Of Herodotus
+II. Book 142.part
+9/12
+
+
+
+Thus in the period of eleven thousand three hundred and
+forty years they said that there had arisen no god in human form; nor even before that time or afterwards among the remaining kings who arose in Egypt, did they report that anything of that kind had come to pass
+11 340 év, amihez ha hozzávesszük, hogy Herodotosz kb i.e.450 körül járt Egyiptomban, akkor hallhatta az adatokat a papoktól, az már elgondolkoztató. Érdemes összevetni a Földünk jégkorszak végi felmelegedés grafikonjával.
+(A grafikon nagyítható)
+Hozzászólások:
+Ez a "mintegy három hónapnyi felhalmozódott hiba" pontosítás jobban tetszik :) . Érdemes ezen elgondolkodnunk. 82x128 év 10.496 évnek felel meg. Ha 82 nappal (közel három hónappal) korrigáltak egy már meglévő naptárat, akkor azt a naptárat vélhetően tíz és félezer évvel korábban kezdték futtatni. Meglepő módon megint ahhoz a rejtélyes i.e. 10500-as esztendőhőz jutunk, amikor a fél Földünket beborító jégpáncél hirtelen visszahúzódott a sarkokra és amikor vélhetően a Nagy Piramisok is épültek.
+Biztos, hogy Szoszigenész csak a római holdnaptárat korrigálta és nem az egyiptomi Szóthisz periódust vette alapul? Hiszen a 4x365+1 rendszer nem a holdnaptárak sajátossága!
+Aranyi László (facebook) 2015. február 27.
+Kedves Csanád! Végigolvastam az oldalt, nagyon szép levezetés. Ám nem találtam benne semmit a Sothis csillag vörös színére vonatkozóan, amit döntő momentumnak tartok.
+A Nibiru vörös(barna) törpecsillag 7 bolygóval, illetve vöröses óriásbolygó hét holddal. A kettő közül valamelyik lehetőség igaz, inkább az utóbbi. Akkoriban volt földközelben, és megfigyelték. A Nibiruról hosszabb írás található a honlapomon. Azóta sem tudok újabb híreket.
+http://aranylaci.freeweb.hu/nibiru/nibiru.htm
+Nem tudom, nennyire helyes a 3600 keringési idő (Nibiru keringési ideje - betoldás D.Cs) . azt gondolom, van még odakint jó pár nagyobb égitest is, közte a Nemezis, a maga kb. 35 millió éves keringési idejével. Sőt, csillagközi bolygók is látogatást tehettek a múltban a Naprendszerünkben. Azt gondolom, nagyon keveset tudunk és még azt is titkolják előlünk.
+10/12
+
+
+
+Kollarics Gábor 2015. február 28. (hosszabb emailből kiemelés)
+... A szóthisszal kapcsolatban bátorít minket Borbola, hogy használjuk a magyar nyelvet. Nekem a szőtt, szőttes és a szűz, szűzies jutott eszembe, ami inkább arra utalna, hogy a Nílus áradásakor a szűz csillagképből kelt fel a nap. Spica pedig mintha a szép szavunkat idézné...
+Ebédnél megkérdeztem a hatodikos lányomat, hogy neki mi jut eszébe az SZ-T, SZ-T-SZ hangkapcsolatról, az első, amit mondott: szita, szitás.
+Úgy emlékszem Pap Gábor előadásaiból, hogy ez is a szűz fogalomkörébe tartozik. Szittyós (lett a talaj az áradás után).
+Spica:S-P-C hangkapcsolatról pedig ezt mondta: szipka. Erről beugrott megint Pap Gábor és a Virgo esztragalaktikus szuperhalmaz szívóhatása...
+És még valami: Izisz-száz, ozirisz-ezer, ha már ennyi számosság van a történetükben. Ezeket a történeteket vajon a hieroglifák megfejtésével kapták, vagy hellenizmus kori görög nyelvű mítoszokként maradtak ránk? Ezt azért mondom, mert Borbola nem sok hitelt ad az egyiptomi történeteknek...
+D.Cs. 2015. február 28.
+Szenzációs észrevételek! “Izisz-száz, ozirisz-ezer” –re külön reagálnék. Az Iliász és a Saros ciklus irásomból idéznék egy részt újra:
+Hámori Alfréd The Legends of the Garden of Eden and The Angels http://users.cwnet.com/millenia/eden.htm írásában említi, hogy:
+"A sumér SAR szó egyik jelentése „bezár”, mely logikai kapcsolatban van a SA-„belső” és a SAG-„belül” szavakkal. De a SAR szintén a 3600-as számjeggyel is megfeleltethető, mely a 360 fokos kör, és a 360 napos sumér évkör bezárására is utal. A magyar „ZÁR” szavunk is utal erre a SAR kapcsolatra, ahogy az eZeR (1 000) számjegyünk is."
+És ebben Hámorinak igaza van, hiszen az EZER szavunk logikailag zárja le az egy-tíz-száz-ezer halmozódásokat. Ezt követően már csak ismértlődéseknek ad helyett az anyanyelvünk: pl tízezer... Hámori az írásában szintén megemlíti, hogy a „hatvány” szavunk a hatvannal (60-nal) van kapcsolatban, ami megint nem véletlen.
+És ehhez illik az Izisz- SZáZ és a Ozirisz-eZeR felvetés is, nem is akárhogy!
+A 45 ezer éves periódus 8 szorosa a sumér 3600 éves SAR (bezár, ZÁR - OZIRISZ) időszak százszorosához (Izisz-Száz). Ez nagyon elgondolkoztató, amit érdemes továbbgondolni!
+Oldal: ZEP TEPI – az “első idő”, az Aranykor Homérosz,Toldi,Csontváry a NAPÚTon, Minósz/Mithrász, 3500 éves szupernaptár - © 2008 - 2017 naput.hupont.hu
+A HuPont.hu ingyen honlap készítő az Ön számára is használható! A saját honlapok itt: Ingyen honlap!
+Adatvédelmi Nyilatkozat
+11/12
+
+
+
+A HuPont.hu ingyen honlap látogatók száma jelen pillanatban:
+12/12

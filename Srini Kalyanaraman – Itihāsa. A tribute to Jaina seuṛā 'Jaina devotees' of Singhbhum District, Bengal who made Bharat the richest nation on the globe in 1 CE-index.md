@@ -1,0 +1,28 @@
+---
+master_file: "[[@SriniKalyanaramanItihasah]]"
+---
+# Index for Srini Kalyanaraman – Itihāsa. A tribute to Jaina seuṛā 'Jaina devotees' of Singhbhum District, Bengal who made Bharat the richest nation on the globe in 1 CE.pdf
+
+1
+Itihāsa. A tribute to Jaina seuṛā 'Jaina devotees' of
+Singhbhum District, Bengal who made Bharat the richest nation on the globe in 1 CE
+It is historic -- a golden chapter in the history of Bharatiya civilization.
+Jaina seuṛā 'Jaina devotees' of Singhbhum District, Bengal, initiated mining work & powered the Tin-Bronze Revolution of Eurasia
+Jaina devotees are the initiators of early mining in Bharat (seuṛā m. ʻ a Jain mendicant
+ʼ(Punjabi); sevṛɔ m. ʻ a Jain monk ʼ,  ̊ṛī f. (Gujarati)(CDIAL 13592). seuṛā are distinct artisan group (engaged in irrigation -- Pk. siṁcaï; P. siñjṇā ʻ to water, irrigate ʼ(CDIAL 13394) in the Jaina community which included arhant. From irrigation work, they advanced to mining operations. This fact of mining initiated by Jaina devotees was reported during the British Colonial regime by Mr. Mallet in an article submitted to the Proceedings of Asiatic Society, Bengal in June 1869: Singhbum District (Bengal)—Indications exist of mining and smelting have been carried on in this region from a very early period, and the evidence available, points to the Seraks or lay Jains as being the persons who, perhaps 2000 years ago, initiated the mining (Proc. As. Soc. Bengal, June 1869, p.170).
+The contributions made by Ancient Indian miners and metal workers have been brilliantly documented in V. Ball's A Manual of the Geology of India: Economic geology (Geological Survey of India. Geological Survey Office, 1881). It has now been shown by archaeometallurgical provenance studies of Begemann et al (Iranica Antiqua, Vol. 44, 2009) that the major contributor of copper resources to power the Tin-Bronze Revolution to the end of 3rd m.BCE in Asia was Bharat, from Khetri mines.
+Abstract from Iranica Antiqua, 2009:
+Copper from Gujarat used in Mesopotmia, 3rd millennium BCE, evidenced by lead isotope analyses of tin-bronze objects; report by Begemann F. et al. 1. Title: Über das frühe Kupfer Mesopotamiens 2. Author(s): BEGEMANN, F. , SCHMITT-STRECKER, S. Journal: Iranica Antiqua Volume: 44 Date: 2009 Pages: 1-45 DOI: 10.2143/IA.44.0.2034374 A lead isotope study »On the Early copper of Mesopotamia« reports on copper-base artefacts ranging in age from the 4th millennium BC (Uruk period) to the Akkadian at the end of the 3rd millennium BC. Arguments are presented that, in the (tin)bronzes, the lead associated with the tin used for alloying did not contribute to the total in any detectable way. Hence, the lead isotopy traces the copper and cannot address the problem of the provenance of tin. The data suggest as possible source region of the copper a variety of ore occurrences in Anatolia, Iran, Oman, Palestine and, rather unexpectedly (by us), from India. During the earliest period the isotopic signature of ores from Central and North Anatolia is dominant; during the next
+
+
+
+2
+millennium this region loses its importance and is hardly present any more at all. Instead, southeast Anatolia, central Iran, Oman, Feinan-Timna in the rift valley between Dead Sea and Red Sea, and sources in the Caucasus are now potential suppliers of the copper. Generally, an unambiguous assignment of an artefact to any of the ores is not possible because the isotopic fingerprints of ore occurrences are not unique. In our suite of samples bronze objects become important during ED III (middle of the 3rd millennium BC) but they never make up more than 50 % of the total. They are distinguished in their lead isotopy by very high 206Pb-normalized abundance ratios. As source of such copper we suggest Gujarat/Southern Rajasthan which, on general grounds, has been proposed before to have been the most important supplier of copper in Ancient India. We propose this Indian copper to have been arsenic-poor and to be the uruduluh-ha variety which is one of the two sorts of purified copper mentioned in contemporaneous written texts from Mesopotamia to have been in circulation there concurrently.
+This archaeometallurgical provenance study links Khetri copper mines --through Dholavira/Lothal and Persian Gulf -- with Mesopotamia. It is possible that tin from Ancient Far East (the tin-belt of the globe) was also routed through Meluhha merchants.
+The 'Seraks' referred to by Mr. Mallet are seuṛā Jaina devotees. (seuṛā m. ʻ a Jain mendicant ʼ(Punjabi); sevṛɔ m. ʻ a Jain monk ʼ,  ̊ṛī f. (Gujarati).
+This contribution made by Jaina devotees to the Economic History of Bharat and the wealth of the nation, should be enshrined in golden letters. The start of mining activities in Bharat made the nation the richest on the globe, contributing to over 33% of Global GDP in 1 Common Era (pace Angus Maddison). For over millennia, the miners, artisans, artificers and Jaina devotees have made the nation devoted to seva, 'work' the proceeds of which are shared in a Commonwealth. This made the nation, the richest on the globe, powering the Tin-Bronze Revolution from ca. 4th millennium BCE.
+Source: https://ia600900.us.archive.org/6/items/PaiaSaddaMahannavoOCRPlusBookmarks/Paia_ Sadda_Mahannavo_OCR_plus_bookmarks.pdf पाइअ-सद्द -महण्णवो (प्राकृ त -शब्द -महाणर्वः ) A comprehensive Prakrit-Hindi Dictionary by Pandit Hargovind Das T. Sheth, 1963, Motilal Banarsi Dass.
+
+
+
+3

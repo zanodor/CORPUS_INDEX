@@ -1,0 +1,51 @@
+---
+master_file: "[[@CelticSkyLesserknown]]"
+---
+# Index for Under a Celtic sky – The lesser-known stories of the stars.pdf
+
+T
+Connecting the dots: new science, old tales
+Celtic tales are enjoying resurgence under new-age belief systems, but can be reclaimed by students of science
+Martin Griffiths 13 January 2008 www.lablit.com/article/341
+Essay
+Under a Celtic sky
+The lesser-known stories of the stars
+he mythology of the night sky is generally tied to a culture that had great influence: the Greek civilization, which gave Western cultures its standard philosophies, methods of science, democratic process and many other gifts. Its far-reaching influence pervades our modern world to such an extent that when astronomers and students of astronomy wish to learn the origins of the constellations, it is the Greek myths that predominate. The beginnings of science fiction and fantasy start with such tales as well.
+Stories and myths became encapsulated into the everyday lives of ancient peoples, giving them a sense of purpose and binding them closer to the natural world around them. Similarly, our modern mythologies from fantasy and literature provide moral tales, warnings and alternative choices replete with meaning for us in our modern world. Scholars easily tease apart the strands of science fiction and fantasy to find that the roots of such media go back to the ancient mythologies that have been almost forgotten, reformed now into current modes, but still yielding enough information to tie old and new together. Remarkably, many of these traditions, custom and folk memories are still alive and connected to an astronomical heritage that rivals that of the classical world. I’m referring in this case to Celtic mythology and traditions, which bind the stories of the night sky to events, symbols, literature and cultural trappings which are very much a part of life in Britain today.
+Perseus, god of the sun, slayer of dragons
+Look up at the night sky in winter and one of the dominant constellations is Perseus, located in some of the brightest portions of the winter Milky Way. This Greek hero and son of Zeus is well known to classical scholars, but how familiar are the Celtic traditions
+
+
+
+Perseus or Llew Llaw
+associating this constellation with the god Lugh? According to Celtic calendar traditions, Lugh is the sun god who dies as the nights get longer after the summer solstice; a traditional feast in his honour was held on Lughnasahd or “Lammas” day on the first of August, a day marked in the old Celtic pictographic calendar with a bow-and-arrow shape. As Lugh was the primary god representing the red sun, his name in common parlance would have been “Coch Rhi Ben” anglicised to “Cock Robin” – a leftover from the belief that souls became birds after death. This idea is still sustained in the old folk song “Who Killed Cock Robin” in which the sparrow kills him with “my bow and arrow”, the sparrow here representing Bran, the tanist incarnation or opposite of Lugh – the god of winter.
+To the Welsh, Perseus represents their hero Llew Llaw Gyffes, who was the child of Arianrhod (herself represented by the constellation Coronae Borealis). He was killed by his treacherous wife and her lover but, at the moment of his death, his soul turned into an eagle: Gwalchmai or the “hawk of May”. His uncle Gwydion searched for him and found him as the constellation Aquila after traversing Sarn Gwydion>, the Milky Way, and eventually restored him to life again. This story ties in with religious beliefs regarding the birth, death and re-birth of the sun from Celtic legends.
+Figures in myth and landscape
+One of the constellations commonly connected with Perseus in Greek legend is of course Pegasus, the winged horse. To the Celts this was the horse of Llyr, the sea god, a beautiful white beast that figured in many Celtic myths and still has marine associations (we call the whitecaps of waves whitehorses). In the ancient Celtic world the constellation of Pegasus (coupled to Andromeda on its back) represented the goddess Epona riding her white horse and is probably symbolized in the British landscape by the great chalk figure of the white horse at Uffington. English tradition tells us that it was here that St George defeated the dragon; mummers plays re-enacted here in times past linked St George to the legend of Perseus and Andromeda and his white steed still stands on the hill as an effigy to this legend.
+The relationship of white horses to ladies astride them is also commemorated with lady Godiva at Coventry, where a monastery was founded by Godiva and her husband King Leofric in early medieval times; her ride through the city is a Christianized tale of Epona, Perseus and Andromeda and the celebration of femininity and fertility. In the Mabinogion, the collection of Welsh folk tales that are a mixture of Celtic oral traditions and medieval recordings, Rhiannon, the bride of Pwll, Lord of Dyfed, is the rider of the white horse, whilst in nursery rhymes ladies riding white horses such as Banbury Cross with its association with bells and rings refers again to ancient tales of fertility and licentiousness.
+Which brings us to the constellation of Hercules, the legendary strong man of Greek mythology. In Celtic myths, however, he is renowned for things other than his strength and is principally a fertility god represented in such chalk figures as the long man of
+
+
+
+Hercules or Helith
+Taurus, the oxen of Hu Gadarn
+Willmington and the giant at Cerne Abbas. At Cerne, the giant is known as Helith; anthropologists claim a connection between Helith and Hercules with the figure being an earthly depiction of this god with his club. The figure of the Cerne giant is dominated by its phallus, a symbol that alludes to fertility rites that go back to ancient times. Indeed, this phallic tradition has a more modern counterpart. Atop the hill above the figure is an area where maypoles were erected to celebrate the coming of spring, the productivity and fertility of the land and the awakening of nature.
+Hunters and farmers
+The most obvious constellation of the winter sky is Orion the hunter, otherwise known as Cernunnos in Celtic mythology. The role of Orion in British folk tales is played out by Herne the Hunter but in Celtic mythology he becomes Mabon, the deity of the winter sun who is the only god who can handle the hunting dog Drudwyn.
+The constellation of Gemini is seen by the Celts not as twins but as two men battling over the love of a woman. They are Gwyn and Gwyrthur, the sons of Greidawl who seek the hand of the lady in red, Creudyladd. Ladies in red are seen in modern times as of dubious repute, but in ancient times red was the colour a bride wore as an outward expression of her virginity. This story has become synonymous with Sir Gawain and the Green Knight in Arthurian legend and is referred to in the folk song, “Green grow the rushes oh”. In Celtic traditions, Gwyn and Gwyrthur are known as the “Rivals of May” and are interpreted as being the light and dark halves of the year battling it out as they set at midnight on the first of May, the Celtic feast of Beltane, the start of the summer season and hence important agriculturally for the growth and harvest of crops.
+The constellations of Taurus and Auriga are actually fused together into a large pattern in the sky which tells the tale of Hu Gadarn, the first man to link oxen to the plough. The entire assembly starts with Bootes the herdsman, that role now taken by Hu Gadarn, moves in a line through Ursa Major and comes down through Auriga to Taurus the oxen. If Hu is handling the plough, then it is easy to see why the seven stars of Ursa Major are so named in British tradition, although why Auriga is seen as the link to the oxen is now lost. In Welsh folk tales, Hu Gadarn rescues the land from a fearful monster, the Afanc (associated with Scorpius). He drew the Afanc out of Llyn Llion by use of his oxen and dragged it to Llyn y Ffynnon Las, where it is magically imprisoned. As the scorpion is unknown in western Europe, the Greek constellation of Scorpius became the Afanc or Beaver to the Celts.
+Protecting the country
+
+
+
+Corvus, the soul of Bran
+Other articles by Martin Griffiths
+Predicting the cosy catastrophe
+Kurt Vonnegut escapes the prison of time - Part II
+Kurt Vonnegut escapes the prison of time - Part I
+The Mars that was
+Scientific dreams, scientific nightmares
+more »
+Such Celtic traditions abound but have been superseded by the classical tales of the Greeks. Nevertheless their historical associations still remain today and none can be so powerfully epitomised as the legend of Bran the Giant. Bran is the brother of Branwen, daughter of the sea god Llyr. Branwen is married off to the king of Ireland, but is mistreated, leading to war between the Britons and Irish. The Irish king Maddolwch is defeated but Bran is mortally wounded by a poisoned arrow. He asks his followers to cut off his head and bury it in London, with his face to the south to stop the land being invaded. If one recalls the Celtic belief that souls become birds, then Bran’s soul becomes a raven and his burial place, Bran’s tumulus, is now the site of the Tower of London. Tradition tells us that if the ravens desert the Tower, then the land will fall to foreign invaders, giving us an entertaining story and direct link back to Celtic mythology and the starry sky as the constellation of Corvus, the Crow, or “Bran’s raven” as the ancient Britons knew it.
+These Celtic tales and their affiliation with the sky are enjoying resurgence under new-age belief systems, but can be reclaimed by students of science in order to holistically connect modern astronomy to its origins and to discover ways in which myth, fantasy and fiction all combine under study of our heavenly heritage.
+Martin Griffiths in a Senior Lecturer at Wales's University of Glamorgan's Center for Astronomy & Science Education who helps raise awareness of astronomy via books, magazines, radio and television

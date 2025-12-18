@@ -1,0 +1,78 @@
+---
+master_file: "[[@KantorJanosAza]]"
+---
+# Index for B. Kántor János – Az orosz tudósok és a magvallás.pdf
+
+2010 szeptember 24, péntek
+Az Orosz Tudósok És A Magvallás
+Szerző: B Kántor János
+A cikk szerint a tudományos kutatásokban az emberi DNS mintegy 10 %-át, vizsgálják, míg a fenn maradó részt funkció nélküli, úgynevezett ballaszt anyagként határozzák meg. Grazyna Fosar és Franz Bludorf kutatók a természet organikus törvényeiből kiindulván úgy gondolták, hogy a maradék 90 %-nyi anyag sem véletlenül van jelen az emberi DNS-ben.
+Alapvetően kétkedéssel fogadom a világszenzációként beharangozott, „legújabb kutatások szerint”, vagy az „orosz, amerikai (stb.) tudósok felfedezték” kezdetű híradásokat. A rengeteg bugyuta beetetés figyelmen kívül hagyása mellett mindig fel kell tennünk a kérdést, ki fizeti a révészt, avagy ki finanszírozza a kutatásokat? Sajnos olyan világban élünk, ahol a tudomány szentsége is árucikké vált. Magyarán, a megrendelő érdeke az esetek többségében eleve meghatározza a várható végeredményt. Így fenntartásokkal olvastam „A DNS-t a szavak befolyásolják” című, a Magyar Megmaradásért honlapon is megjelent cikket. (eredeti forrás: http://kataklizma.co.cc/2010/08/09/a-dns-t-a-szavak-befolyasoljak)
+De mivel a megismerés határterületeivel foglalkozó tudományágak esetében – bevallva, vagy bevallatlanul - nagy jelentőséggel bírnak a megérzések, az egyéni intuíciók, úgy gondoltam, a benne foglalt állítások a hivatalos megerősítés hiányában is érdekesek lehetnek.
+Az alábbiakban kísérletet teszek a „DNS-t a szavak befolyásolják” és a magvallás tanait tartalmazó „Magonc” (www.magvallas.hu) című írásokban megfogalmazottak összevetésére.
+(Az érthetőség kedvéért az eredeti publikáció rövid összegzését kiemelten jeleztem.)
+A cikk szerint a tudományos kutatásokban az emberi DNS mintegy 10 %-át, vizsgálják, míg a fenn maradó részt funkció nélküli, úgynevezett ballaszt anyagként határozzák meg. Grazyna Fosar és Franz Bludorf kutatók a természet organikus törvényeiből kiindulván úgy gondolták, hogy a maradék 90 %-nyi anyag sem véletlenül van jelen az emberi DNS-ben. A vizsgálatok során hasonlóságot véltek felfedezni a DNS alkaloid/alkáli molekuláinak működési modellje és az emberi nyelv szabályai között. Azaz, a DNS határozottan reagált a szavak, mondatok modulálta, megfelelő frekvencián előállított lézersugár, vagy rádióhullám változásaira. Így jó okkal feltételezhető, hogy a DNS-t bizonyos „kulcsszavak” alkalmazásával át lehet programozni. Mindebből arra a következtetésre jutottak, hogy az élő kromoszómák holografikus számítógépként működnek. Ezen elv mentén az egyik DNS-ből felfogott információkat egy másik DNS-be továbbították, miáltal sikerült a békaembriót szalamandra-emrióvá változtatniuk. Ezeket a törvényszerűségeket használták a régi korok mágusai, és erre alapulnak korunk hipnotikus módszerei. Tehát, a megfelelő tudati szinten (ellazult-, alfaállapot) lévő páciens szervezete, mentális és fizikai állapota egy meghatározott frekvenciájú beszéd által megváltoztatható, átprogramozható. Sőt mi több, az egyének előtt is nyitva áll az út a saját DNS-ükkel történő kapcsolatfelvételhez.
+A magvallás a régi korok igézőinél véli felfedezni a ráolvasás, a szemerő, a szembeszéd tudományát, más személyek ilyen, vagy olyan irányú befolyásolását.
+Az ige szó, „Általánosságban, a szó, a beszéd kifejezésére szolgál, de a kezdetekben valamifajta varázsszöveg, isteni beszéd, kinyilatkoztatás értelemmel bírhatott.” (Magyar kód: Kisded)
+„...csak az idő folyamán elsatnyultak az ilyen irányú képességeink.
+Hogy, miért is? Válaszképpen talán annyi is elegendő; mert, máglyahalál járt jutalmul érte.”
+(Magyar kód: Kisded )
+„A DNS-t a szavak befolyásolják” szerzője szerint a DNS az Univerzum különböző pontjait összekötő, úgynevezett féreglyukakhoz hasonló képződményeket hoz létre, melyek segítségével „információkat vonz a makrokozmoszból, átadva azokat tudatunknak”.
+(Megjegyezném, hogy a tér távoli, görbületmentes területeit összekötő, „csőszerű” féreglyukak csupán feltételezett képződmények.)
+Az így kialakult hiperkommunikációs csatornákon keresztül juthatunk különféle információkhoz, valamint ezekből képezi a DNS a morfológiai (alaktani) szabványait.
+A magvallás egyik alapvető tétele az Isten Igéjének, a Szentmagnak sugárzása (Iz) által létre hozott formák sokasága, azaz nyilvánvalóan közvetlen kapcsolatnak kell lenni az Iz és a morfológiai szempontból meghatározó DNS között.
+„... bebizonyosodott, hogy a magyar íz szó a korábbi sejtésünknek megfelelően nem más, mint a Szentmagból áradó sugárzás, a látható világunkat átható, a formák millióit létrehozó lélek, Isten Lelke.” (Magyar kód: Kisded )
+„Tőle ered minden szimfónia, harmónia, igazszó, szeretet és minden teremtő gondolat, tőle kapjuk az ismereteket, az Ő könyvtárából meríthetnek a szabadság kegyelmi állapotába került elmék”. (A magvallás: Mag és magerő)
+Mivel, a hétköznapi gondok, a stressz, a nem megfelelő mentális állapot nagymértékben rontja a „vevő működését”, a relaxációs állapot a legalkalmasabb az információk vételére, azok tudatosítására.
+„Arany-teher a földi kincs, ezüst-béklyó az aggodalom
+
+
+
+Csak a teremtő hitet vigyétek tovább madárszárnyakon”
+Mondja az „Ajánlás az újonnan érkezőknek” című vers, és csakugyan:
+„Bevallva, vagy bevallatlanul a valóban zseniális, korlátoktól, sablonoktól mentes elmék úgynevezett isteni szikrája, a nagy felfedezéseket indikáló gondolata a Szentmag sugárzása által keletkeznek.
+Persze, a magerő, a magsugárzás csak az arra méltóaknak, és kivételes alkalmakkor mutatkozik meg a maga tisztaságában. Általában csak többszörös tükröződések által, mondhatnánk anyaggal „szennyezett” állapotában tereli gondolatainkat, tetteinket. Így, az anyagba süllyedt személyek esetében jelentősen leromolhat, akár ellenkező előjelűvé is válhat az isteni sugallat”. (A magvallás: Mag és magerő)
+A későbbiekben a tudat, pontosabban a „felsőbbrendű csoporttudat” mentén nyerünk képet a hiperkommunikáció működéséről. A királynőjét ténylegesen elvesztő hangyabolyban megszűnik a koordinált munka, megszűnik a kapcsolat a csoporttudatot közvetítő királynővel. Azaz a hiperkommunikáció nem más, mint a csoporttudattal és egymással összeköttetésben lévő megszámlálhatatlan sejt, DNS többirányú információs szupersztrádája, persze némi faji tagozódással megfűszerezve.
+A magvallásban foglaltak szerint egy isteni szuperintelligencia, a Szentmag koordinálja, rendszerezi a világ legapróbb történéseit. Természetszerűleg „hatáskörébe” tartoznak a különböző fajok csoporttudatai is.
+„Nem voltak kapacitás és kifejezésbeli korlátjaik, értelmezési nehézségeik, szabadon és interaktívan folyt az információcsere az egyének és az úgynevezett központ, a kollektív tudat (a későbbi tudatalatti) között.” - olvasható az isteni őseinkkel kapcsolatban a Magvallás fejezetében.
+„Amint, arról már szó volt, az egész világot, annak minden összetevőjét, élő, organikus szervezetnek tekintjük. Nemkülönben így vagyunk az emberiséggel, az összemberi társadalommal, az úgynevezett Nagy Emberrel, amire persze szintúgy igaz, hogy akkor igazán ellenálló, életrevaló, ha – a természet törvényeit követve – minél inkább szervezett, elkülönülő, de együttműködő sejtekből, szövetekből tevődik össze.” (Magvallás: Ember és társadalom)
+A példaként említett „királynő központú” hangyatársadalom esetében felmerül az isteni sugárzást vevő, majd átalakítva továbbadó, közvetítő jelentősége az életképes társadalmak kialakulásában, illetve a hangyabolynál kevésbé kasztosodott szerveződések esetében az irányító elvesztéséből adódó egyéni kapcsolattartás kialakulásának kérdése is.
+De, ha már a hangyáknál és a hangyabolyoknál tartunk, fel kell hívnom a figyelmet a természet titkos üzeneteire. Helyesebben a nyitott szívű keresők előtt feltárulkozó „élő mintázatokra”. Ilyen a nővények szervszerű felépítése, de leginkább beszédes a hangyatársadalom tagozódása.
+(Amennyiben tüzetesen megvizsgáljuk a növényeket, alaktani szempontból nem egy testet, hanem a szervek szervezetté válásának lehetünk tanúi.)
+Bizonyos hangyafajoknál a szakosodás, a kasztosodás olyan szinten van, hogy az azonos genetikai jellemzőkkel bíró szülők ellenére, egymástól teljességgel különböző egyedek jönnek világra. Igaz, ezt többen a lárvákkal való gondoskodás, a táplálásuk eltérő mivoltával magyarázzák. A lényeg az, hogy a közösség fejlődésének, fennmaradásának érdekében megfelelő arányban „születnek” munkások, katonák, szárnyas herék és királynők. Méghozzá annyira eltérő testfelépítéssel, hogy a laikus szemlélődő számára akár különböző fajú egyedeknek is tűnhetnek. A munkások („elsatnyult” nőstények) szárnyatlanok és egyszerű testfelépítésűek, szemeik kisebbek, sokszor elcsökevényesednek. Ellenben agyuk, és a munkavégzésre használt részeik, csápjaik, álkapcsaik fejlettek. A katonák feje és a hadakozást elősegítő rágója hatalmas méreteket ölt. A herék és a királynő szárnyai, a tetszetősebb kivitelük, vagy a királynő óriási potroha egyértelműen a szaporodást szolgálja.
+Ezt a nagymérvű specializálódást látva, az embernek már-már olyan kényszerképzete támad, hogy valami végveszély esetén, vagy egy isteni sugallat hatására a munkásokból agy és a vele kapcsolatba lévő kezek, a katonákból éles ollók, agyarak, a herékből hím nemi szerv, míg a királynőből egy életet ringató bölcső, méh válhatna.
+De, mielőtt létrehoznánk a hangyabolyból felemelkedő, öntermékenyítő szuper-terminátort, és egy szakavatott biológus jogos felháborodásában hangyairtóval bombázná le úgy a teremtményt, mint az alkotóját, ideje abbahagyni a fantáziálást.
+Az egésszel csak a világunk sokszínűségét, az általunk preferált folyamatok kétirányúságát, és nem utolsó sorban a „központi sugárzás” vételének számtalan szintjét szerettem volna reprezentálni.
+Legfőképpen a fajfenntartást elősegítő csoporttudatot, és az egész kerek világért felelősséggel bíró, univerzálistudatot is magában hordó Ige mindenhatóságát érzékeltetni.
+Mit jelent ez az ember esetében?
+A szerző szerint az emberiségnek az egyéni individuális tudat megtapasztalása érdekében le kellett mondania a csoporttudatról, azaz a hiperkommunikációról, és ennek a folyamatnak köszönhetjük a csordaösztönök primitív létformájából történő felemelkedésünket.
+De mára az individualizál tudatunk olyan szintet ért el, hogy „létrehozható egy új, valóban felsőbbrendű csoport tudati forma”, melynek segítségével korlátlan lehetőségekhez, teremtőerőhöz jutunk.
+
+
+
+Amint a nagyszámú ember egyazon dologra való koncentrációja képes rendezni a véletlenszerű számsorokat generáló berendezés számait, úgy fogjuk átalakítani környezetünket, kontrollálni, befolyásolni az egész Univerzum energiáit.
+„Bizony, bizony a teremteni tudás is a tarsolyunkban van, csak jó mélyen az anyag alatt. Rajtunk múlik, le tudjuk-e porolni, fényre tudjuk-e hozni.” (Magvallás: Az ember megjelenése)
+Az írással némileg ellentétben a magvallás az individuális tudat kialakulását nem törvényszerű folyamatnak, hanem isteni beavatkozásnak, tekinti. Ami történhetett genetikai úton, de sokkal természetesebb módon is. Amint azt már említettük, a mindent átható magsugárzás magában hordja az univerzális tudás egészét. Csak a „vevőktől”, a létezők sokaságának egyedi képességeitől függ, hogy ebből az információözönből mit képes felfogni, és hasznosítani. A formák milliárdjait létrehozó, világunk történéseit befolyásoló Szentmag, mint Isten egyik természete, „szívünkbe ültette” önvalójának egy darabkáját, a vétel minőségi javulásához szükséges Magot, s ennek az aktusnak köszönhetjük emberré válásunkat. Ennek okán váltunk isteni természetű lénnyé, ennek következtében tudunk külső szemlélőként, Isten szemével tekinteni önmagunkra, s környezetünkre. Bírjuk az isteni Igét, a teremtés képességét, és nem utolsó sorban megvan a lehetőségünk egy magasabb tudatossági fok elérésére. Igen, meg van a lehetőségünk az univerzális tudatállapot megszerzésére, amennyiben újra, meg újra – és ki tudja már hányadszor – nem „távolodnánk el a fénytől, és nem süllyednénk a mindent magának akaró, önző anyagtestünkbe”.
+Azaz, a csoporttudat csak egy lépcsőfok az univerzálistudat felé vezető úton, és közel sem ellentétpárja az individuális tudatnak, hanem mindkét tényező egymást kiegészítő eszköze a „hiperkommunikáció” magasabb szintű kihasználásának. Az idézett cikkben említett csordaösztön pedig a magsugárzás, az Iz rosszabb minőségű érzékeléséből adódó „alsóbb” létsíkok élőlényeinek túlélését szolgálja.
+A korlátlan lehetőségekkel kecsegtető „felsőbbrendű tudati forma” elérésének pedig egyetlen útja az állati és isteni eredetünkből adódó skizofréniából való kigyógyulásunk. Az elkülönülő anyagi és egyesülő lelki önvalónk, mindkét szülénk elfogadása, a velük és általuk történő feltámadás, felemelkedés.
+Azt, hogy mi mindenre képes a lelkek azonos frekvencián történő rezdülése, az „egyazon dologra való koncentráció”?
+„Az egy akaraton lévő, „egyesülő” ezernyi lélek pedig olyan hihetetlen erővel bír, ami akár isteni tettekre, teremtésre is képes.
+Az emberekben lévő magerő (Iz), s az akarat egyirányultsága megbontotta az egyensúlyi állapotot, és egy sajátos téridő-konstelláció kialakulásával, mintegy átjárót, kaput nyitott a világok között. Azaz, „erre a világra jött” a fokozatosan átalakuló, de a jövetele pillanatában még AnnA-i (köztes létforma) testtel bíró Fénylény, az Isteni követ, a Világ Világossága.” (A keresztény világ: Jézus másik arca)
+BKJ.
+Hozzászólások megtekintése a régi honlapról
+Válasz (Kántor, 2010.09.26 10:56)
+Kezdetben vala az Ige, és az Ige Istennél vala, s az Isten vala az Ige. (Károli Biblia)
+Válasz MAG-URA (Vmari, 2010.09.25 09:18)
+Az ige cselekvést, történést jelentő szó. Mikor kimondom, akkor tudtára adom a világnak, hogy én, te, ő, mi, ti, ők közül valaki csinál valamit, vagy éppen történik valami.
+Fantasztikus "varázsszöveg ez, isteni beszéd, kinyilatkoztatás értelemmel bír" most is számomra és előbb-utóbb a környezetem számára is. Van nagyobb varázslat annál mint hogy kimondom, mellette csinálom, ezzel serkentem magam és másokat akiknek példát mutattam, a kimondás-csinálás továbbadására? Tüzet gyújtok és gerjesztek folyamatosan? Mivel szavahihető, becsületes ember vagyok, nekem ez ennyit jelent így, ennyire egyszerűen és pontosan.
+Mert a normális ember számára nem satnyulnak el az alapvető dolgok, ahogy a csinálás is összhangban marad a kimondott szavakkal! Lehetséges, hogy ennek a bölcsességnek a szokássá válása "íródik bele" a DNS-be?... (Míg "másoknál" meg a galádságok, benne a hosszú, szófosó, csapongó, mindent tudatosan összekeverő szövegelés szokássá válása?)
+Olvassátok csak ennek fényében a cikk szövegét: "Az ige szó, "Általánosságban, a szó, a beszéd kifejezésére szolgál, de a kezdetekben valamifajta varázsszöveg, isteni beszéd, kinyilatkoztatás értelemmel bírhatott." (Magyar kód: Kisded)
+..."csak az idő folyamán elsatnyultak az ilyen irányú képességeink. "
+
+
+
+"Hogy, miért is? Válaszképpen talán annyi is elegendő; mert, máglyahalál járt jutalmul érte."
+-Van akinek a máglya halált jelent, de a normálisaknak a máglya régen is és most is a tüzet, a meleget sőt az élet melegét jelentette és jelenti, ahogy az IGE is a cselekvést és a történést. Ettől MAG-URA a magyar ember és nem a ráaggatott kilométernyi és mindenféle irányzatként oktatott zsidóskodó misztikus maszlagoktól.
+Válasz
+Megnyitva 2781 alkalommal
+Tweet Tetszik 0 Megosztás
