@@ -60,5 +60,4 @@ a makarut. Tessék, lehet választani. Ezt az epitheton ornanst korábbi
 
 
 File : ősi Gyökér_2018_1-2.pdf Title : Ősi gyökér 46. évf. 1-2. sz. (2018. január-június) Subject : Author : Keywords : Page : 12
-a makarok, de a papirusztekercsek óbirodalmi hangzó- sítását is figyelembe
-véve a
+a makarok, de a papirusztekercsek óbirodalmi hangzó- sítását is figyelembe véve a
