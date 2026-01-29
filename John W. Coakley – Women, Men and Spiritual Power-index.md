@@ -1,7 +1,7 @@
 ---
-master_file: "[[@CoakleyWomenMenSpiritual2012]]"
+master_file: "[[@CoakleyJohnCoakleyWomen2012]]"
 ---
-# Index for Women, Men and Spiritual Power – John W. Coakley.pdf
+# Index for John W. Coakley – Women, Men and Spiritual Power.pdf
 
 .
 women, men, and spiritual power
