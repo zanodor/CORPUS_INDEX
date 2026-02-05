@@ -1,5 +1,5 @@
 ---
-master_file: "[[@MaticsakSVandorloNapok]]"
+master_file: "[[@MaticsakSandorVandorlo]]"
 ---
 # Index for Maticsák Sándor – Vándorló napok – a hét napjainak elnevezése az európai nyelvekben.pdf
 

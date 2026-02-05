@@ -1,5 +1,5 @@
 ---
-master_file: "[[@ArgyusiImreTunderIlonaKeresese]]"
+master_file: "[[@ArgyusiImreArgyusiImreTunder]]"
 ---
 # Index for Árgyusi Imre – Tündér Ilona keresése.pdf
 

@@ -1,5 +1,5 @@
 ---
-master_file: "[[@TothJOsiEpitettTajak]]"
+master_file: "[[@TothJozsefOsi]]"
 ---
 # Index for Tóth József – Ősi épített tájak a Kárpát-medencében.pdf
 

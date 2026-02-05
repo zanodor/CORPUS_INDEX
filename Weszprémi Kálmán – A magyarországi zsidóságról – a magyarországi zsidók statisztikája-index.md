@@ -1,5 +1,5 @@
 ---
-master_file: "[[@WeszpremiKalmanMagyarzsido]]"
+master_file: "[[@WeszpremiKalmanMagyarorszagi]]"
 ---
 # Index for Weszprémi Kálmán – A magyarországi zsidóságról – a magyarországi zsidók statisztikája.pdf
 

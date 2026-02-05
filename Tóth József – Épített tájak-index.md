@@ -1,5 +1,5 @@
 ---
-master_file: "[[@TothJEpitettTajak]]"
+master_file: "[[@TothJozsefEpitett]]"
 ---
 # Index for Tóth József – Épített tájak.pdf
 
