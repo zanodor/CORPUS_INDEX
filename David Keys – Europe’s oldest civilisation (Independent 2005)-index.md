@@ -1,5 +1,5 @@
 ---
-master_file: "[[@KeysDavidKeysEuropes]]"
+master_file: "[[@DavidKeysEuropes]]"
 ---
 # Index for David Keys – Europe’s oldest civilisation (Independent 2005).pdf
 

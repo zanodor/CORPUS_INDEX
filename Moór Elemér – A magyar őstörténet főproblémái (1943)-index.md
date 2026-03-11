@@ -1,5 +1,5 @@
 ---
-master_file: "[[@MoorElemerMoorElemerMagyar]]"
+master_file: "[[@MoorElemerMagyara]]"
 ---
 # Index for Moór Elemér – A magyar őstörténet főproblémái (1943).pdf
 

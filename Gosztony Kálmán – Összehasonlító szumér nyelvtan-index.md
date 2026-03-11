@@ -1,7 +1,7 @@
 ---
 master_file: "[[@GosztonyKalmanOsszehasonlito]]"
 ---
-# Index for GosztonyKalmanOsszehasonlito.pdf
+# Index for Gosztony Kálmán – Összehasonlító szumér nyelvtan.pdf
 
 DUNA
 KÖNYVKIADÓ v á l l a l a t

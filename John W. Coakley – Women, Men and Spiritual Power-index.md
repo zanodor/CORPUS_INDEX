@@ -1,5 +1,5 @@
 ---
-master_file: "[[@CoakleyJohnCoakleyWomen2012]]"
+master_file: "[[@JohnCoakleyWomen2012]]"
 ---
 # Index for John W. Coakley – Women, Men and Spiritual Power.pdf
 

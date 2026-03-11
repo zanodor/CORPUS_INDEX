@@ -1,5 +1,5 @@
 ---
-master_file: "[[@BudinStephanieLynnBudin2016]]"
+master_file: "[[@StephanieLynnBudin2016]]"
 ---
 # Index for Stephanie Lynn Budin – Women in Antiquity.pdf
 
