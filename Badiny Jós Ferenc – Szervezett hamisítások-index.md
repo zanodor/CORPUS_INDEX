@@ -1,7 +1,7 @@
 ---
 master_file: "[[@BadinyJosFerencSzervezett]]"
 ---
-# Index for Badiny-Jós Ferenc – Szervezett hamisítások.pdf
+# Index for Badiny Jós Ferenc – Szervezett hamisítások.pdf
 
 !
 !"

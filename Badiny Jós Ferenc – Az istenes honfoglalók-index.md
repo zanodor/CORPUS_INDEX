@@ -1,7 +1,7 @@
 ---
 master_file: "[[@BadinyJosFerencAz]]"
 ---
-# Index for Badiny-Jós Ferenc – Az Istenes Honfoglalók.pdf
+# Index for Badiny Jós Ferenc – Az istenes honfoglalók.pdf
 
 5/19/2021 DR
 www.magtudin.org/Istenes.htm 1/18

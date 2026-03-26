@@ -1,7 +1,7 @@
 ---
 master_file: "[[@BadinyJosFerencJezushitu]]"
 ---
-# Index for Badiny-Jós Ferenc – Jézushitű Atilla.pdf
+# Index for Badiny Jós Ferenc – Jézushitű Atilla.pdf
 
 JÉZUSHITŰ ATILLA: Badiny Jós Ferenc
 Posted on április 24, 2012 Szerző: arieshu
