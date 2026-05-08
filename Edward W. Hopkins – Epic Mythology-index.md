@@ -1,7 +1,7 @@
 ---
 master_file: "[[@EpicMythologyEdward]]"
 ---
-# Index for Epic Mythology – Edward W. Hopkins.pdf
+# Index for Edward W. Hopkins – Epic Mythology.pdf
 
 GRUNDRISS DER INDO-ARISCHEN PHILOLOGIE UNO ALTERTUMSKUNDE
 (ENCYCLOPEDIA OF IN DO-ARYAN RESEARCH)

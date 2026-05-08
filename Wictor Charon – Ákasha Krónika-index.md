@@ -1,7 +1,7 @@
 ---
 master_file: "[[@WictorCharonAkasha]]"
 ---
-# Index for Wictor Charon – Akasha Kronika.pdf
+# Index for Wictor Charon – Ákasha Krónika.pdf
 
 1
 Wictor Charon

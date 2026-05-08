@@ -1,7 +1,7 @@
 ---
 master_file: "[[@PusztaszeriVerszerzodesEmlektemploma]]"
 ---
-# Index for A pusztaszeri vérszerződés emléktemploma – Magyar történelmi szemle 1973 3. szám.pdf
+# Index for Trogmayer Ottó – A pusztaszeri vérszerződés emléktemploma – Magyar történelmi szemle 1973 3. szám.pdf
 
 A pusztaszeri vérszerződés emléktemploma
 ( A pusztaszeri Árpád-emlékmű közelében. Sövényháza határában a közelmúltban feltáró ásatásokat végeztek. A szeri pusztán tartott gyűlés ANONYMUS által leirt eseményét szándékoztak ellenőrizni, miután kró nikásunk hitelét GYÓRFFY GYÖRGY és nyomán mások kétségbe vonni i gyekeztek. A tárgyitörténelem megcáfolja a hitelrontást__ Az ásatások ról a Csongrád megyei Múzeumok igazgatója " Á R P Á D - K O R I KŐ KRÓNI KA " cimmel a "DELTA" hasábjain előzetes jelentést közölt,amelynek teljes szövegét az alábbiakban teljes egészében ismertetjük. Az eredményekhez - történelmi adatok alapján - megfontolás tárgyává teen dő kérdéseket vetünk fel. TROGMAYER OTTÓ, múzeumi főigazgató tudó sítása honfoglaláskori épitészetünk jeles voltának elsőrangú bizonyitéka.

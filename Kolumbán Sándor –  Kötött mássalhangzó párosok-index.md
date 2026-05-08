@@ -1,7 +1,7 @@
 ---
 master_file: "[[@Kolumban_Kotott_parosokpdf]]"
 ---
-# Index for Kolumban_Kotott_parosok.pdf
+# Index for Kolumbán Sándor –  Kötött mássalhangzó párosok.pdf
 
 1
 Kolumbán Sándor

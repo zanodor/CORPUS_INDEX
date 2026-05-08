@@ -1,7 +1,7 @@
 ---
 master_file: "[[@SearchCradleCivilization]]"
 ---
-# Index for In Search of the Cradle of Civilization – India – Feuerstein, Kak & Frawley.pdf
+# Index for G. Feuerstein, S. Kak & D. Frawley – In Search of the Cradle of Civilization - India.pdf
 
 IN SEARCH OF
 THE CRADLE

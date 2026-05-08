@@ -1,7 +1,7 @@
 ---
 master_file: "[[@Kolumban_A_magyar_nyelv_hangjaipdf]]"
 ---
-# Index for Kolumban_A_magyar_nyelv_hangjai.pdf
+# Index for Kolumbán Sándor –  A magyar nyelv hangjai (2010).pdf
 
 Ismerjük meg nyelvünk hangjait
 Kolumbán Sándor

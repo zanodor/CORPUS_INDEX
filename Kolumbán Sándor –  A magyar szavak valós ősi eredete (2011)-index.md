@@ -1,7 +1,7 @@
 ---
 master_file: "[[@KolumbanSandorAMagyarSzavakValososiEredete2011pdf]]"
 ---
-# Index for Kolumbán Sándor –  A-Magyar-Szavak-Valos-ősi-Eredete-2011.pdf
+# Index for Kolumbán Sándor –  A magyar szavak valós ősi eredete (2011).pdf
 
 KOLUMBÁN SÁNDOR
 A

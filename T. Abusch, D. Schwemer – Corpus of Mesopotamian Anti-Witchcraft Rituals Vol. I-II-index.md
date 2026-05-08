@@ -1,7 +1,7 @@
 ---
 master_file: "[[@CorpusMesopotamianAntiWitchcraft]]"
 ---
-# Index for Corpus of Mesopotamian Anti-Witchcraft Rituals Vol. I-II.pdf
+# Index for T. Abusch, D. Schwemer – Corpus of Mesopotamian Anti-Witchcraft Rituals Vol. I-II.pdf
 
 Corpus of Mesopotamian Anti-Witchcraft Rituals
 
