@@ -1,7 +1,7 @@
 ---
 master_file: "[[@MythBabylonianGod]]"
 ---
-# Index for The myth of the Babylonian the god of fire Gila and the woman of Elan Elamatu.pdf
+# Index for Christopher Walker – The myth of the Babylonian the god of fire Gila and the woman of Elan Elamatu.pdf
 
 The myth of the Babylonian: the god of fire Gila and the "woman of Elan" Elamatum
 2019-01-31

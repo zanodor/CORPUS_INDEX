@@ -1,7 +1,7 @@
 ---
 master_file: "[[@MagicMysteryTibet]]"
 ---
-# Index for Magic and Mystery in Tibet – Alexandra David-Neel.pdf
+# Index for Alexandra David-Neel – Magic and Mystery in Tibet.pdf
 
 HIS is the believe-it-or-not story,
 of a strange land and a mysteri
