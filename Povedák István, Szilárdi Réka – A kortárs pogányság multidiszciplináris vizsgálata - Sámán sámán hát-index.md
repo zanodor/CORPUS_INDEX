@@ -1,7 +1,7 @@
 ---
 master_file: "[[@KortarsPoganysagMultidiszciplinaris]]"
 ---
-# Index for A kortárs pogányság multidiszciplináris vizsgálata – Sámán sámán hátán.pdf
+# Index for Povedák István, Szilárdi Réka – A kortárs pogányság multidiszciplináris vizsgálata - Sámán sámán hát.pdf
 
 SÁMÁN SÁMÁN HÁTÁN. A KORTÁRS POGÁNYSÁG MULTIDISZCIPLINÁRIS ELEMZÉSE
 Povedák István – Szilárdi Réka (szerk.)

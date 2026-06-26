@@ -1,7 +1,7 @@
 ---
 master_file: "[[@EsztariRekaEgben]]"
 ---
-# Index for Esztári Réka – égben Köttetett Házasság – Himnusz Iddin-Dagan szent nászáról.pdf
+# Index for Esztári Réka – Égben Köttetett Házasság – Himnusz Iddin-Dagan szent nászáról.pdf
 
 35
 Esztári Réka (1984) a PPKE BTK történelemtudományi doktori programjának hallgatója. Kutatási területe a mezopotámiai társadalomtörténet, ezen belül a nemi szerepek vizsgálata.

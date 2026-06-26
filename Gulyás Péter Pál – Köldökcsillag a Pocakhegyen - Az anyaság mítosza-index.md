@@ -1,7 +1,7 @@
 ---
 master_file: "[[@GulyasPeterPala]]"
 ---
-# Index for Gulyás Péter Pál – Köldökcsillag a Pocakhegyen – Az anyaság mítosza.pdf
+# Index for Gulyás Péter Pál – Köldökcsillag a Pocakhegyen - Az anyaság mítosza.pdf
 
 Gulyás Péter Pál
 Köldökcsillag a Pocakhegyen

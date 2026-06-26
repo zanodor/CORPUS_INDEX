@@ -1,7 +1,7 @@
 ---
 master_file: "[[@RomansagEredetenekKerdese]]"
 ---
-# Index for A románság eredetének kérdése a középkori magyar történetírásban.pdf
+# Index for Deér József – A románság eredetének kérdése a középkori magyar történetírásban.pdf
 
 A ROMÁNSÁG EREDETÉNEK KÉRDÉSE A KÖZÉP
 KORI MAGYAR TÖRTÉNETÍRÁSBAN

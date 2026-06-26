@@ -1,7 +1,7 @@
 ---
 master_file: "[[@SZEMeLYNeVADaSESSZEMeLYNeVHASZNaLAT]]"
 ---
-# Index for SZEMéLYNéVADáS éS SZEMéLYNéVHASZNáLAT  AZ óMAGYAR KORBAN.pdf
+# Index for Tóth Valéria – Személynévadás és személynévhasználat az ómagyar korban.pdf
 
 Tóth Valéria
 SZEMÉLYNÉVADÁS ÉS SZEMÉLYNÉVHASZNÁLAT AZ ÓMAGYAR KORBAN

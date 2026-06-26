@@ -1,7 +1,7 @@
 ---
 master_file: "[[@MAGYARNYELVSZoTaRaNAK]]"
 ---
-# Index for A MAGYAR NYELV SZóTáRáNAK ETIMOLóGIAI ELVEI.pdf
+# Index for Németh Renáta – A XIX. századi nyelvbölcselet és a magyar nyelv szótárának etimológiai elvei.pdf
 
 1
 DOKTORI DISSZERTÁCIÓ

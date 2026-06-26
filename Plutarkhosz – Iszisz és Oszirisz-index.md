@@ -1,7 +1,7 @@
 ---
 master_file: "[[@IsziszEsOszirisz]]"
 ---
-# Index for Iszisz és Oszirisz – Plutarkhosz.pdf
+# Index for Plutarkhosz – Iszisz és Oszirisz.pdf
 
 PLUTARKHOSZ
 Iszisz és Oszirisz
