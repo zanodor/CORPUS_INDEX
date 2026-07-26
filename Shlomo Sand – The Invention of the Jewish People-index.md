@@ -1,7 +1,7 @@
 ---
 master_file: "[[@ShlomoSandInvention]]"
 ---
-# Index for Shlomo Sand -The Invention of the Jewish People-Verso (2009).pdf
+# Index for Shlomo Sand – The Invention of the Jewish People.pdf
 
 The Invention of the Jewish People
 

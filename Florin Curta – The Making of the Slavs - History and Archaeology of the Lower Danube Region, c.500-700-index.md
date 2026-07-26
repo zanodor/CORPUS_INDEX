@@ -1,7 +1,7 @@
 ---
 master_file: "[[@FlorinCurtaMaking]]"
 ---
-# Index for Florin Curta – The Making of the Slavs – History and Archaeology of the Lower Danube Region, c.500-700.pdf
+# Index for Florin Curta – The Making of the Slavs - History and Archaeology of the Lower Danube Region, c.500-700.pdf
 
 This page intentionally left blank
 
