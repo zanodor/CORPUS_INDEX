@@ -1,0 +1,53 @@
+---
+master_file: "[[@ZahonyiAndrasTudomanyos]]"
+---
+# Index for Záhonyi András – A tudományos igazságról – egy régész szemszögéből. „Az igazságot is meg lehet szokni!” – Makkay János gondolatai.pdf
+
+153
+Záhonyi András (Budapest):
+A tudományos igazságról – egy régész
+szemszögéből. „Az igazságot is meg le
+het szokni!” – Makkay János gondolatai
+a tudósok bakijairól
+Bevezetés
+Aiszkhülosz véleményét az isteni puccsal hatalomra került főistenről, Zeuszról (aki zord és kezében tartja a törvényt) Hermész szájába adja a Leláncolt Prométheusz című drámájában: „Mert Zeusz nyelvét hazugság nem hagyhatja el, mindent beteljesít, amit kimond.” Tényleg jó-e szót fogadni a teljhatalmú zsarnoknak? A bölcs Prométheusz szerint NEM. Eredmény: Prométheusz májából Zeusz büntetéseként sasok lakmároznak. Prométheusz „bűnei”: 1. tudja „Zeusz leváltásának titkát”, de nem árulja el; 2, az „egy nap élő” ember számára lehozta a tüzet, az „istenek tulajdonát”, s ezzel sok hasznos mesterségre és a betűvetésre, számolásra is megtanította. Tanulság: Már a görög istenek világában is nem a bölcs és igazságos, hanem az erős és erőszakos egoista irányít. Csoda-e, ha ma is így van?
+Makkay János jelszava: Rendszerváltást az Akadémián!123 Ma ugyanis nagyrészt még mindig ugyanazon tudósok (és „hű” tanítványaik) véleménye a mértékadó, akik évtizedekig a ’békepapokkal’ együttműködve (és időnként politikai befolyás hatására) tájékoztatták félre a közvéleményt és nevelték félre a tanulóifjúságot. Makkay humorosan tárja elénk példáit, szemléltetve, hogy az emberi elfogultság és butaság mára sem halt ki teljesen.
+Megoldási javaslata azonban kivitelezhetetlennek látszik: minden támogatást megvonni az eddigi tudományos és művészeti elittől, és tiszta lappal induló, felkészült és becsületes gárdának átadni a váltóbotot. Ehhez megbízható és alapos, „keleti” és „nyugati” kutatókat felsorakoztató nemzetközi bizottság kellene, aki eldönthetné, kinek a munkája értékes szakmailag, mentes a „szubjektivizmustól”. A politikában ilyen váltást „nem sikerült” megvalósítani – de ott legalább történtek kezdő-, illetve látszatlépések. A tudomány és az egyházak területén azonban ez az „átvilágítás” a mai napig egyáltalán el sem kezdődött!
+123 Makkay János: Hogyan kell történelmet írni? A szerző kiadása. Budapest, 1998.
+
+
+
+154
+Makkay János példái
+a) Az Annales Regni Francorumban így szerepel egy mondat: „Sed et hostes antea illis populis inexperti, qui Ungri vocantur, regnum eiusdem populantur.” Pontatlan fordítása (Mátyás Flórián szerint): „De még azon népek által elébb nem tapasztalt ellenségek is, kik ungrinak neveztetnek, pusztítják (Német Lajos) országát.” Györffy ezt vette át... (és ezt a fordítást Harmatta János is elfogadta). Tóth S. László (HKÍF)124 precízebb fordítása (ezt Ungváry is megerősíti): „de azon népek előtt korábban ismeretlen ellenségek is, akiket magyaroknak (Ungri) neveznek, ugyanannak királyságát pusztítják.” TANULSÁG: NEM MINDEGY, hogy mi pusztítunk – vagy egy általunk nem ismert nép. Mert „morva szövetségről csak Bóna meg Kristó álmaiban van szó, a forrásban nem.”125 b) Györffy György szerint az Eunedubelianus név összefügg a régi oguz eredetmondával. Máshol meg azt írja, hogy Eunedubelianus = Ene(ch) + Du(la) + Bel(ar). Balogh László rövid cikkében126 elmagyarázta, hogy Györffy mindössze két filológiai hibát követett el egyetlen szóban. A helyes olvasat: yunedubeliani = jenődbeli, azaz Jenő törzsbeli. c) A Kárpátoktól keletre előforduló ’ungri’ akár 862 előtt is lehet árpádi magyar. Nyugaton (a Kárpát-medencében vagy attól nyugatra) semmi szín alatt nem. 896 után viszont a keleten előforduló ungri már csak alkalmanként lehet árpádi magyar... Györffynek és Kristónak ezért logikából egyes jár)! Megj.: Makkay ezen megállapításával arra szeretné felhívni a figyelmet, hogy Kristó a „Kisantant” tudósainak erősen nacionalista történelemszemléletét igyekszik alátámasztani, azaz a magyarok minél későbbi Kárpát-medencei felbukkanását hirdeti. Egy román történész pl. a rendelkezésre nem álló adatokból az ellenkező következtetésre jutna – vagyis László Gyula többszörös honfoglalásról szóló elméletét vállalná.
+Makkay megjegyzései
+Kristó pongyolán használt „szakszavaihoz”:
+A szótő: nem gyök! A gyök: nem radical (csak a vegytanban az), hanem (a nyelvészetben) stem vagy root. Erdős steppe = forest steppe (nem „wooded steppe”). Lovas temetkezés = Equestrian burial (nem „horse burial”). Körte: a „paleobotanical science” foglalkozik vele, nem a „zoogeographical science” (magyarán a körte inkább növény, mint állat). Györffy és társa írásához:
+124 A honfoglalás korának írott forrásai. Szerk.: Kristó Gy. Szeged, 1995. 125 Makkay i. m. 16. o. 126 Balogh László: „A titokzatos Eunedbelia titka.” Névtani Értesítő 15, 1993, 29-31.
+
+
+
+155
+„... a Várhegy egyik barlangjában olyan kőbalta került elő, amelyet a közel fél százezer évvel ezelőtt itt élt ősember használt.”127 Makkay szerint az előbbi mondatban három épületes szamárság van: a) A (csiszolással készített) kőbalta nem azonos a 200000–50000 éve használt kődarabokkal (pattintott szakócákkal, hasogatókkal, szilánkeszközökkel stb). b) Ősember 50 000 éve már nem élt. (Őskőkori ember viszont igen.) c) A budai Várhegyen élő ember kb. 400000200000 éve élt ott.
+Makkay a FORRÁSok megbízhatóságáról128
+Ibn Hordádzbeh (földrajzíró) Az utak és országok könyvében Góg és Magóg falának leírása egy tolmács előadásában): „Góg és Magóg oly nép, akik mindegyikének a hossza akkora, mint egy magunkfajta zömök ember fele; köröm helyett kezeiken karmok vannak, zápfogaik és agyaraik vannak, mint a vadállatoknak; füleik nagyok, ha az egyiket ágy gyanánt használják, a másikkal takaróznak, ...úgy közösülnek, mint a barmok.” (Al-Hamadzáni írja le Wahb ibn Munabbih nyomán.) Makkay szerint ez csak egy költött mese, és nem embertani vagy néprajzi ismertetés, hiszen Góg és Magóg utódai, a mai magyarok, a Mendel-törvény szerint ugyanis örökölhették volna őseiktől a karmokat, az agyarakat, a lepedőnyi füleket, ám azokat valamiért egyik ma élő magyarnál se látjuk. Ennyit „érnek” az arab és perzsa történetírók „hiteles és értékes” adatai, és enynyire megbízható azoknak a magyar őstörténet kutatásban való felhasználása. Az árpádi honfoglalás fő és megbízható forrásának számító Ibn Ruszta tízezer bizánci aggastyánról, tízezer ifjúról, tízezer apródról stb. és 5000 aranykeresztről „beszél”. Konstantinápoly szűk belvárosában a bizánci császár kivonulása (templomba menetele) során nem is volt hely ennyi embernek és keresztnek. A kerek sereglétszámok ugyancsak megkérdőjelezhetők. Ibn Ruszta és Gardizi Dzsajhani elveszett művéből kivonatolta leírásait. Ezek többszörös szövegrontást szenvedtek. Dzsdajháni szerint viszont a magyarok tűzimádók és volt köztük egy iráni kultúrájú néprész. Ezért érthetetlen, hogy Kovács Előd balladakutató miért fél kimondani, hogy a finnugor nyelvű ősmagyarok már a 896-os honfoglalás előtt találkozhattak iráni népekkel? (A közép-iráni hagyományelemek így kerülhettek balladáinkba.) Ugyanakkor Kmoskó Mihály kételyei a mohamedán források korlátairól nem kap helyet a MAGYAR ŐSTÖRTÉNET KUTATÁSÁNAK FORRÁSAIt tárgyaló egyetemi tankönyvben!129
+127 Az életföldrajz-kutató Györffy György és Zólyomi Bálint: „A Kárpát-medence és Etelköz képe egy évezred előtt.” In: A honfoglalásról sok szemmel. Szerk. Kovács L., Budapest, 1994. 27-30. Megjegyzés: A cím ’magyarabbul’ így hangzik: „... egy évezreddel ezelőtt”. 128 Makay i. m. 31-32.
+129 Bevezetés a magyar őstörténet kutatásának forrásaiba. Budapest, 1988, 211-227.
+
+
+
+156
+Makkay epés megjegyzése ezért helytálló lehet: „Hála a szegedi iskolának, 1988 óta tudjuk, Nagy Sándor hódító útra kelt Tibetbe is (forrása: Qudáma közlése). Ez bizonyára a Curtius-életrajz azon részében szerepelt, amely nem maradt ránk, de megbízható (?) moszlim földrajztudósok még olvasták...”130
+1. ábra. Hunnivári Zoltán Kristó elleni könyve.131
+Továbbá Kristó az ómagyar etnikum szláv eredete mellett kardoskodik (Makkay szerint elképesztően unalmas stílusban), s adatait (a megbízhatatlan) Dzsajhánira építi.132 Kristó (időnként a pánszlávizmusra emlékeztető) téziseinek értékelését Hunnivári Zoltán (alias Škoda) is elvégezte Anti-Kristó c. könyvében (Magánkiadás, 2001). Pontosítást kíván az is, amit Szabó A. Ferenc írt pár évtizede, 133 hogy az „ugor-török háborúban” a levert török párt képviselői hangoskodtak „halszagú finnugor rokonságot” emlegetve. Valójában, mint a Századok egyik száma (131: 3, 1897, 782) mutatja, a „halzsíros atyafiság” kifejezést a finnugor rokonságot
+130 Makkay i. m. 14. 131 Hunnivári Zoltán: Anti-Kristó. A kettős honfoglalás elméletének tudatalatti bebizonyítója Kristó Gyula professzor. Szerzői kiadás, 2001. Hasonmás kiadás a Buenos Airesi kiadás alapján. 132 Megjegyzés: Györffy ugyanerre a forrásra építkezve már alaposan eltérő véleményen van. 133 Új Magyarország, 1977. okt. 29. 9.
+
+
+
+157
+valló tudósok találták ki és „adták” a török-pártiak szájába, mint ami nem tetszik nekik, azért tagadják. Egyébként nem is a finnekről–észtekről volt szó, merthogy inkább keletre élő nyelvrokonainkról folytak a viták. 134
+Történelem előtti idők
+Ilyenek csak a nyelvtudósok (pl. Rédei Károly) számára voltak (és vannak) már a legtöbb történész nem használja ezt a fogalmat. Makkay szerint nyelvtörténészeinknek általában fogalmuk sincs arról, mi is lehet az a „történettudomány”. Mert Rédei (Radanovics) Károly135 és társai összekeverik nyelvünk finnugor eredetét a magyar nép etnogenezisével. A nyilvánvalóan török etnikumú nép (Árpád népe) ajkán hozatják be a Kárpát-medencébe a „finnugor magyar nyelvet”. Nyelvészeink és történészeink mindmáig nem magyarázták meg tisztességesen népünknek, miért beszélünk mi itt finnugor–magyarul, ha elődeink évszázadokig nem finnugor módon éltek, dolgoztak, harcoltak, ruházkodtak, temetkeztek, gazdálkodtak, ettek-ittak, gondolkodtak, szaporodtak? A „rettenthetetlen nyelvtudós” Rédei többször is agglitunativ láncot ír (agglitunatív helyett), amikor az uráli nyelvektől idegen inkorporációs szerkezeteket (és igeragozást) tárgyalja. S bár a Makkay által idézett Lakó György szerint „egészében vagy részben új etimológia került ki Rédei tolla alól (pl. a tokhár *was)”, de az a rideg valóság Makkay szerint, hogy Rédei UEW-je (Uráli etimológiai szótára) 75%-ban megegyezik a Lakó által szerkesztett MszFE136 adataival. Ez utóbbi elkészítésében ugyan Rédei 12 évig részt vett mint munkatárs, de erről azonban egy szó se esik az UEW-ben.
+134 Részletesebben lásd Bereczki G.: A Névától az Urálig. Szombathely, 1994 és Békés Vera írásai.
+135 Rédei Károly: Őstörténetünk kérdései. (A dilettáns nyelvhasonlításról). Budapest, 1998. Budapesti Finnugor Füzetek 10.
+136 MSzFE: A magyar szókészlet finnugor elemei I. (Lakó Gy., 1972.)

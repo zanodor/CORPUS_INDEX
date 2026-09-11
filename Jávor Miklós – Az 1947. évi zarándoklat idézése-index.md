@@ -1,0 +1,27 @@
+---
+master_file: "[[@JavorMiklosAz]]"
+---
+# Index for Jávor Miklós – Az 1947. évi zarándoklat idézése.pdf
+
+44
+Jávor Miklós (Mosonmagyaróvár)
+Az 1947. évi zarándoklat
+idézése
+Kedves Ünneplő Magyar Testvéreim!
+Egyetlenszerű alkalom, hogy világrészeken és országhatárokon átívelő, magyar szívtől magyar szívig sugárzó szent egyetemességgel lelkünkben, szent István királyunk ünnepén, az 1947. augusztus 20-i altöttingi zarándoklatról megemlékezhetünk.
+Ahogy a költő mondja: „Hol a szem, szemével farkasszemet nézni? Ki meri meglátni, ki meri idézni az igazi arcát? Ünnepe vak ünnep, s e mái napoknak szűk folyosóin a szavak úgy lobognak, mint az olcsó gyertyák.”
+És valóban: ez a mindmáig méltatlanul elhallgatott esemény az utolsó szabadon választott magyar országgyűlés ülésének napján az idegen ízű kenyér keserűségébe korbácsolt magyarság világgá kiáltott élni akarásának – az Altöttingi Országgyűlésünknek – adott soha el nem évülő, üdvös lelki tartalommal és hatalommal telített lelki alapot és keretet. A Nyugatra menekült magyarok minden egyéni és közös sorstragédia után is tisztában voltak azzal: lehetetlen emberi erővel Istenné válni, és csak isteni erővel válhatunk emberré. Ennek tudata nélkül nincs újrakezdés, nincs teremtő és újjáteremtő gondolkodás és főképpen nincs keresztény magyarhoz méltó létszerveződési forma. S ott, a bajor Altötting városában, ahol egykoron, az Úr 903-as esztendejében az akkori magyarok a halál szelén nyargaltak, épségben megmaradt az Altöttingi Madonna, ahová 1947. augusztus 20-án Ausztria és Németország menekülttáboraiból érkezve, tízezer Krisztus-hívő magyar zarándok térdepelt és imádkozott esdeklő szívvel az Istenanya közbenjárásért, hogy végre enyhüljön magyar népünk szenvedésének végeláthatatlan sora. A zarándoklatot vezető Kótai Zoltán atya, vatikáni delegátus, a bazilikában tartott szentbeszédében ekképpen szólt a külsőleg ugyan elgyötört és megtört, ám belülről minden rezdülésével a reményteli jövő képébe egy emberként kapaszkodó tömeghez: „Koldusboton, törött mankón, jövünk búcsút járni, Szűzmáriás magyaroknak kopott unokái.” Az atya ezen felül kiemelte, hogy a magyarságot – jelenlegi sorsától és látszólagos reménytelenségétől függetlenül – mindig
+
+
+
+45
+is a Szent István királyunk által ránk hagyományozott „Hármas Abroncs” tartotta össze. Ez a „Hármas Abroncs”: a magyar nép, a magyar ország és a Szent Korona, s ha ezekbe kapaszkodva hősiesen viseljük a történelem sorscsapásait, akkor a Boldogasszony be fogja tölteni kéréseinket és földi pokoljárásunknak egyszer vége fog szakadni.
+Jávor Miklós beszédét mondja
+A szentbeszéd alatt a bazilika terme zsúfolásig megtelt, több ezren a környező tereken és utcákon sorakoztak. A szentmise zárultával megindult a körmenet a bazilikából az Altöttingi Madonna kegykápolnája felé. A menet élén Habsburg József főherceg, az elüldözött magyarság legfontosabb érdekképviseleti szervének, a Magyar Szabadság Mozgalomnak tiszteletbeli elnöke, valamint Kótai Zoltán pápai delegátus és a német egyház részéről Ludwig Eisenreich atya haladt. Utánuk vonultak címeres és koronás magyar zászlókkal a kezükben és a „Boldogasszony anyánk” ősi magyar Mária-énekkel az ajkukon és a szívükben, az elüldözött magyar anyák, apák, valamint gyermekeik ezrei és vitték fájdalmaktól terhes, de új reményekkel teli imájukat a Madonna szobra elé. A menetelők a kegykápolnához érve, a díszes tábori oltárnál imádkoztak, mivel a kegykápolna ekkora tömeg befogadására képtelen volt. Ezt követően Kótai atya elimádkozta XII. Pius pápa őszentségének, a hontalanokhoz címzett könyörgését: „Add, hogy mindazok, akik kimondhatatlan szükségtől szorongatva, otthonukból
+
+
+
+46
+száműzve élnek, a Te önkéntes szegénységed példájából merítsék az isteni erőt, a krisztusi bátorságot ahhoz, hogy a szenvedésbe taszított életüket türelemmel viseljék.” Az ima után került sor a kegykápolna oldalfalába elhelyezett bronz emléktábla leleplezésére, amely Szent István királyunkat ábrázolja, amint a Megszentelt Koronát – és általa országunkat – a Szűz Anya oltalmába ajánlja. Az emléktáblán, a magyarság szenvedéseit jelképező töviskoszorúból font címer alatt a következő szöveg foglalja össze a nap legfontosabb üzenetét: „Koronádnak legszebb éke hozzád sír fel Hunnia, nem felejt el Árpád népe, amíg lesz egy hű fia!”
+Végül a zarándokló magyarok ismét egybegyűltek a bazilikában, ahol az eseményt egyházzenei hangverseny és a vilshofeni körzet magyar lelkészének, Fazekas Lászlónak a beszéde zárta. Mindezek tükrében nyugodtan leszögezhetjük, hogy az altöttingi zarándoklat üzenete ércnél is maradandóbban kellene, hogy bevésődjék minden magyar elméjébe és szívébe. Ez a 67 évvel ezelőtti néhány óra múlhatatlan bizonyságtételként állított példát a széthúzás, az önös és a részérdekek végtelen fajtájú kórjaiban szenvedő tévelygő magyarság elé, hogy szenvedéseinkre gyógyírt, csak az összetartás és megélt együvé tartozás kegyelmi ajándéka hozhat. Vagy ahogyan záró beszédében Fazekas László mondta: „Lásd be, hogy először lélekben kell építeni, ezt pedig megkezdheted Te is, még a mai napon. Tegyük tehát kereszténnyé újra a magyar életet, mert istenhit nélkül csak bábeli tornyot lehet építeni, nem országot. Míg az egyik ember a másikban nem felebarátot lát, hanem ellenséget és vetélytársat, addig csak rombolni lehet és nem építeni.”
+Fennmaradásunk zálogaként tehát szívleljük meg, és mindennapjaink életbe épült imájaként visszhangozzuk az altöttingi zarándoklat lelki örökségét, határon innen, határon túl, bárhol a világban, magyarként!

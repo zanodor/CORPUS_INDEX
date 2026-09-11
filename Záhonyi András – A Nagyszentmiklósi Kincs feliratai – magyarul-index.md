@@ -1,0 +1,91 @@
+---
+master_file: "[[@ZahonyiAndrasNagyszentmiklosi]]"
+---
+# Index for Záhonyi András – A Nagyszentmiklósi Kincs feliratai – magyarul.pdf
+
+24
+ÍÍRRÁÁSSTTÖÖRRTTÉÉNNEETT.. MMAAGGYYAARR
+NNYYEELLVVEEMMLLÉÉKKEEKK ((II//1100//cc..))
+Záhonyi András (Budapest):
+A Nagyszentmiklósi Kincs feliratai
+magyarul.
+A Nagyszentmiklósi Kincs (1. ábra) 1799-es bánsági megtalálása óta az akkori magyar királyi székhelyen, Bécsben előbb a Császári és Királyi Régiségtárban, utóbb a Kunsthistorisches Museumban lett kiállítva, manapság „óbolgár kincs”, majd „avar kincs” cím alatt. Ezen a helyzeten szeretnénk változtatni a következő írással, hogy legalább mi tudjunk a feliratos korsók, edények magyar vonatkozásairól, olvasatairól. És ezért úgy gondoljuk, a 23 darabból álló aranykincsnek Budapesten, a magyar fővárosban lenne a helye. Azért van Bécsben, mert a nemzetközi döntőbíróság határozatát tartalmazó 1932-es velencei egyezményt, amely Ausztriának ítélte, alá kellett írnunk. 1920 után ugyanis a két ország közötti tárgyalások éveken át nem vezettek eredményre, amikor a magyar kormány kísérletet tett a Bécsbe került magyar műkincsek, kulturális örökségünk visszaszerzésére, aminek így csak töredéke került haza.
+1. ábra. A Nagyszentmiklósi Kincs.
+
+
+
+25
+Történeti áttekintés
+A leleteket 1799-ben találták meg az Aran(y)ka patak partján, Nagyszentmiklóson, Bartók Béla szülőhelyén. A kincs történetéről Fischer Károly Antal, László Gyula és Forrai Sándor könyveiben, a 2002-es budapesti vendégkiállítás katalógusában és a Wikipédián részletesen is olvashatunk. Hampel József a leleteket „Atilla kincsnek” nevezi 1884-ben írt munkájában, amelyet az 1884. febr. 17 – jún. 16. között Budapesten megrendezett országos ötvösmű-kiállításra készített. Hasonló megmunkálású és stílusú kincsek kerültek elő Közép- és DélOroszországból, az egykori Szkítia területéről.
+2. ábra. Az égberagadási jelenet a Nagyszentmiklósi Kincs 2. számú korsóján.13
+A 2. számú korsó keretelt képekkel díszített részletei mesterien kidolgozottak. Az ábrázolt jelenetek (Győztes fejedelem, Égi vadász, Állatküzdelem, Égberagadás) ősi mitológiai történeteket idéznek (2-4. ábra). Művészettörténeti elemzésére most nem térünk ki.
+13
+http://hu.wikipedia.org/wiki/Nagyszentmikl%C3%B3si_kincs#mediaviewer/F%C3%A1jl:Em esesdreemhungary.JPG.
+
+
+
+26
+3. ábra. A győztes fejedelem a Nagyszentmiklósi Kincs 2. sz. korsóján.14
+Éppen ideje, hogy – magyar – érveinket eljuttassuk a nagyvilágba! Odobescu már 1868-ban, a Párizsi Kiállításon is szereplő „román régiségek” jegyzékében megemlíti a nagyszentmiklósi leletet (arra hivatkozva tartja románnak, hogy egy román parasztasszony, Ikonia Vuin találta meg).15 Arról persze megfeledkezik, hogy Torontál megye (így Nagyszentmiklós is) sokáig Magyarországhoz tartozott.
+14
+http://hu.wikipedia.org/wiki/Nagyszentmikl%C3%B3si_kincs#mediaviewer/F%C3%A1jl:Bul gar_warrior.jpg és http://hu.wikipedia.org/wiki/Nagyszentmikl%C3%B3si_kincs#mediaviewer/F%C3%A1jl:Na gyszentmiklos_2a_korso_-_Hampel_1894.jpg. 15 Egy érdekesség a kincs történetéből: a román asszony és férje elvesztette igényét a kincs egyharmadára, mivel néhány darabot kereskedőknek eladott. Végül nemhiába járt gyalogosan, mezítláb többször is Bécsben: a kiharcolt kárpótlás eredményeként kb. 1000 Ft jutalomban részesült. Erről az „igen lassan meghozott döntésről” azonban nem szerzett tudomást, mivel több hét várakozás után haza kellett utaznia... (A pénz értéke az akkori háborúk miatt már sokat inflálódott, mire végre az uralkodó a földesúrnak kiutalta a jutalmat. Az időközben elhunyt földesúr örököse, Nákó Kristóf két jobbágyteleknyi földdel és négy ökörrel jutalmazta meg a megtaláló családját. Nákó Sándor földbirtokost pedig kárpótlásképpen bárói ranggal jutalmazták.)
+
+
+
+27
+4. ábra. Égi vadász és állatküzdelem a Nagyszentmiklósi Kincs 2. korsóján.16
+Pataky László mérnök teljes mértékben besenyőül–magyarul, Vékony Gábor régész pedig részben magyarul olvasta el a Kincs feliratait. Az ő nyomdokukon induló ’mérnökből lett bölcsész’, Záhonyi András – jelen sorok írója – a feliratok hasonlósága, rokon vonásai alapján arra jutott, hogy a rovásfeliratok kisebb egyszerűsítéssel (a meglévő hasonlóság alapján) öt csoportba sorolhatók. Ezek a székely-magyar rovásírás segítségével és magyarul is könnyen értelmezhetők. (A görög betűs feliratok nagyobbik része is magyarul olvasható – az eredmény azonban itt még nem teljes.) Mindezek reményt adnak, hogy az „Attila kincseként” is megnevezett értékes aranytárgyakat a jövőben ne csak Bécsben, hanem a leletekhez sokkal inkább kötődő mai magyar fővárosban, Budapesten vándorkiállításon rendszeresen, illetve Temesvárott vagy Nagyszentmiklóson is láthassuk.
+16
+http://hu.wikipedia.org/wiki/Nagyszentmikl%C3%B3si_kincs#mediaviewer/F%C3%A1jl:Na gyszentmiklos_2d_korso_-_Hampel_1894.jpg.
+
+
+
+28
+A Kincs feliratainak eddigi olvasatai
+Vékony Gábor régész arra a következtetésre jutott, hogy a lakomákon, vígasságokon használt tárgyakon a szertartásszerűen felszolgált kumisz, méhsör, bor, pálinka (és víz) neve és a hozzájuk kapcsolódó cselekvések (ivója, ízlel, izzad, hevítmény, üdít, ürít, vad étek, stb.) szerepelhetnek, méghozzá több nyelven is (török, szláv, alán, magyar). Forrai Sándor kritikai megjegyzése: 1,5-2 dl „vosa” (vagy „vosu”) nevű italtól (feltehetően pálinkától) nehezen lehetett „felhevülni”... Ide kapcsolódik, hogy a Szarvas határában, 1983-ban megtalált tűtartó feliratát (melyet a magyar kutatók „varázsszövegnek” tekintenek) a nagyszentmiklósival nagyrészt egyező ábécé segítségével sikerült elolvasni – méghozzá magyarul. – Megjegyzés: Harmatta János szerint félig magyarul, félig türkül írták. Pataky László mérnök17 olvasatai szerint a valamennyi felirat népnevet, fejedelmi személynevet és méltóságnevet takar – méghozzá besenyőül–magyarul. Patakynak mindegyik „különleges jelet” sikerült a székely–magyar rovásábécé valamelyik elemének megfeleltetni. Ez azt jelenti, hogy a kincs rovásjeles feliratai a székely–magyar rovásírás segítségével minden nehézség nélkül olvashatók! 1961-ben a Magyar Rádió be is számolt Pataky ’szenzációs felfedezéséről’. A mérnök úr nagy önbizalommal így nyilatkozott: „néhány perc alatt elolvastam mind a 14 feliratot”. A besenyőket Pataky „felismeréséig” mindenki török népnek tartotta. Pataky feltételezte, hogy a Nagyszentmiklósi Kincs elosztását 6 besenyő fejedelem végezte. A neveket és a rangokat besenyőül–magyarul olvasta el. Nevük és a testvéries osztozkodás története sok olvasót magával ragadott. (Lásd Pataky L.: Atilla kincse I., Két Hollós, Bp., é. n.). A könyv utószava szerint „Pataky a nem mindennapi módon létrejött Arvisurának a jelenleg elfogadott vagy legalábbis megtűrt történelemképhez való igazítását vállalta magára”. Két fontos kérdésre azonban nem tér ki Pataky: 1. A fejedelemasszony tulajdonának tekintett, 9 darabból álló asztali készleten miért nincsenek feliratok, ha azokat is felosztották egymás között a ’besenyő fejedelmek’? (A feliratok kivétel nélkül a férfi fejedelmi készlet elemein találhatóak.) 2. A bevert és a karcolt rovásfeliratok stílusa eltérő (felmerült, hogy azokat nem egyidőben készítették) – Pataky azonban ezt nem veszi figyelembe olvasataiban.
+17 Pataky László unokatestvére a kiváló régésznek, László Gyulának. Jó barátja volt többek között Paál Zoltán, az Arvisura lejegyzője és Forrai Sándor, a kiváló rovásírás-kutató. Így módjában állt, hogy közismert és kevésbé ismert ősi feliratokat ’első kézből’ tanulmányozzon.
+
+
+
+29
+Pataky másik „zseniális felismerése” a margitszigeti rovásemlék feliratából kiolvasott eseménydús „story” a kun Kötöny kapitányról. A történet hitelességét gyengíti, hogy felfedte magát az a két egyetemista, aki az 1920-as évek elején „diákcsínyből” odavéste a nevét18 a kőre. Mivel nem voltak járatosak a rovásban, hibákat vétettek a jelhasználatban és az írásirányban is. (Pataky tehát a diákok nevét „olvasta el” történelmi feljegyzésként...) Patakyt „szerencséje” nem hagyta cserben a rovásírást „betiltó” Szent István-rendelet ’megtalálása’ során sem: házszomszédja (sic!) ugyanis átadta neki a Szilassy-család régi iratait, melyek között István király rendeletének fordítása is ott rejtőzött (?). Ebből is igen szép történet kerekedett ki Pataky tollából: Domonkos esztergomi érsek (aki Botond fia!) tett jelentést a pogány írás tiltásáról Szilveszter pápának. Pataky a rendelet kiadásának pontos napját is megadja: 1000. szeptember 23.19 Többen feltételezik, hogy Patakynak benne lehet a keze a „szenzációs” somogyi rovásírásos palatábla (Tanító tábla) és a táltos kövek váratlan felbukkanásában is. A Kaposvár környékén élő Csepregi Ferenc „találta” meg a leleteket nagyapja faládájában. A táblák csak a becsületes presbiter, Forrai Sándor (Pataky barátja) megvakulása után kerültek elő. Régészeti – műszeres – vizsgálat a táblák kormeghatározására még nem történt, de az állítólagos török kori (1576) készítés ellen szól, hogy a rovásírásos szövegben új (19-20. századi) jelformák is felbukkannak. A Magyar Őstörténeti Minilexikona, amelyet Erdélyi István szerkesztett (Napkút Könyvkiadó, 2012.) nem tartalmazza Erdélyi I.-Pataky L.: A nagyszentmiklósi „Attila-kincs” lelet körülményei (Móra F. Múzeum évkönyve, 1968.) című tanulmányát. Talán azért, mert már nem vállalható az akadémiai körökben, hogy valaki korábban együtt dolgozott Patakyval. Mindezek a sikert eredményező, de nem eléggé alapos megállapítások arra intettek, hogy Pataky nagyszentmiklósi kincsekkel kapcsolatos remek ötleteit (jelpárhuzam-felismeréseit, magyar nyelvű olvasatait) további vizsgálatnak vessük alá. A rengeteg név és rang20 ugyanis azt sejtette, hogy egyszerűbb, a mindennapi élethez szorosabban kapcsolódó olvasat is ott rejlik a Kincs felirataiban.
+18 Az ábécét Palik Attila: „Attila kincse” c. sikerkönyvéből (1921) vették, mely Tar Mihály 1902-es rovásábécéjét használta. 19 Mandics György megállapította, hogy a rovásírásos feljegyzéseket elsősorban azért semmisítették meg, mert azok a régi birtokviszonyokat rögzítették, így akadályozták, hogy István király szabadon adományozhasson birtokokat új híveinek. István „rovásírást tiltó rendeletének” eredeti példánya eddig nem került elő. A középkori erdélyi templomokban meglévő számos rovásfelirat jelzi, hogy sok esetben maga az egyház őrizte meg rovásírásos emlékeinket. A székely-magyar rovásírás egyházi üldözésének súlyosságát ez a tény gyengíti. 20 Az egyiptomi és mezopotámiai írások kutatói ugyanis akkor szoktak „kínjukban” (akár máshol elő nem forduló) neveket kiolvasni, ha nincs jobb ötletük... Hosszas és kitartó munkával persze jobban megközelíthető az írást készítő üzenete. Mi most erre teszünk kísérletet.
+
+
+
+30
+Rovásfeliratok
+Örömmel számolunk be róla, hogy kísérletünk eredményesnek bizonyult: sikerült a sokféle feliratot egységesíteni. Kétféle módon is megközelítettük a jelsorokat. Az egyik út Patakyé:21 az általa felismert személyneveket, címeketrangokat kíséreltük meg kiegészíteni, egyszerűsíteni.
+5. ábra. Ma is szokás, hogy ráírjuk a tartóedényekre, mit is tárolunk benne!
+A másik megközelítés során Vékony Gábor ötletét alkalmaztuk. Tőle eltérően nem többnyelvű, hanem kizárólag magyar nyelvű feliratokat kerestünk, melyek a korsók, edények tartalmára-használatára utalnak (vö. 5. ábra). Mind a kiolvasott magyar ital- és ételnevek, mind a Pataky által megtalált (és most pontosításra kerülő) személynevek, rangmegjelölések megerősítik, hogy a feliratok nyelve a MAGYAR!
+21 Pataky olvasatainak ’gyenge pontjai’ (ezek miatt „mertünk belefogni” a rovásfeliratok újraértékelésébe, melynek során természetesen felhasználtuk Pataky számos kiváló meglátását). Pataky ugyanazt a jelet hol így, hol úgy hangzósítja. Pl. a 9. sz. tálkán záró „И” jelet Z-nek olvassa (pecsenyég kenéz), a 8. sz. tálon azonban már az „N”-t K-nak (kenész). A kezdő „G”t és a szóhatár után álló „P”-t pedig felcseréli a 10. sz. tál feliratánál (pecsenyeg kenez). E csere nélkül a „kocsonyak pesenyek” (kocsonyák, pecsenyék) ételnév-olvasat adódna. A ’k(ené)z’ helyett az 5. sz. korsón, a 22. és 23. sz. kelyhen (és a 17. sz. ivókürtön is) a ’k(umi)sz’ olvasat is szóba jöhet.
+
+
+
+31
+Az előforduló 14 rovásfeliratot rendszerezve sikerült megállapítanunk, hogy azok tulajdonképpen 5 jelsor változatai.22 Ez 5 jelsor olvasata (a Debreczenyi Miklós 1914-es megfejtéséből építkező) Pataky szerint a következő volt: besenyőj (pecsenyüj) k(ené)sz (genész);
+Gélys(e) (lásd pl. Gélyse kiskán pesenyüj kenész); pesenyő (vagy besenyők); „ps tenyő”.
+6. ábra. A Nagyszentmiklósi Kincs feliratainak olvasatai – Pataky László Gélyse kiskán c. könyve (Tevan K., Békéscsaba, 1996.) szerint.
+22 Az 5 jelsor olvasatának hangalakja hasonló, részben átfed. Ennek alapján feltételezhető, hogy végülis egy személy (a feltételezett tulajdonos) nevéről és rangjáról van szó.
+
+
+
+32
+Az új megközelítés: ételek, italok nevei – magyarul
+Mi az öt rovásírásos jelsorhoz étkezéssel kapcsolatos elnevezéseket is társítani tudtunk: Gélyse-Géza (a tulajdonos neve) ~ golyás = gulyás; (Pataky László „u”-nak hangzósítja a 6. számú korsó „900-kal elforgatott w” jelét. Mi úgy látjuk, hogy az előbbi jel félkörös változatát is „o”-nak olvashatjuk. A Kárpát-medencei rovás jelei közt „nyitott o (o/u)” megjelöléssel szerepel [Rovásatlasz, Milani K., Bpest, 2013, 7, 28, 47. o.].) pesenyőj, pesenyüj, pesenyő = pecsenye; (perzselt~sült hús), kenész (mivel az „aK” és az „NY” jelről van szó (Pataky ez utóbbit bontotta fel N+SZ-re), Pataky „kiskán” olvasatánál ételnévként (a „P helyett álló G”, vagyis jeltévesztés feltételezésével) ismét a „pe(c)seknye” (azaz pecsenye) szó egyik változata áll előttünk. A ’kenéz’ esetében (váza: G-Z) az eddig Z-nek „olvasott” jel valójában R! Ezért a „k-(ny-)r” vázra épülő kenyér olvasat is szóba jöhet. Pataky: „Ps tenyő” (15. és 16. felirat a nyeles csészén): ZA: g-s-t-ny-(ő / em  olvasata étekként lehet ges(z)tenye(m), azaz gesztenyém is – de a pesinye (azaz pecsenye) olvasat is szóba jöhet. A P és a G (vagy K) rovásjel olvasatait a bölcsészkutatók többször is önkényesen felcserélték (lásd 10. sz. tálka). Egy lehetséges ok: így jobban „egybecsengenek” az egyes „besenyős” feliratok. Az említett ételnevek eredete, első előfordulása a TESZ és egyéb lexikonok szerint későbbi, mint a 9. század. Meglátásunk szerint éppen a nagyszentmiklósi kincs rovásfeliratai támasztják alá, hogy az említett szavakat már korábban is ismerték a Kárpát-medencében. – Megjegyzés: A 8. sz. gyümölcsöstál (vagy szilke) felirata a „teljes menüt” tartalmazza: gulyás, pecsenye, kocsonya, kenyér, gesztenye. Itt mindenképpen érdemes figyelembe venni a másik megközelítési lehetőséget is: azt, hogy a felirat a tulajdonos nevét és rangjait mutatja be.
+Görög ábécével írt feliratok
+A 21. sz. csésze (tál) feliratát sokáig görög ábécével írtnak tekintették. Pataky szerint azonban magyarul olvasható, méghozzá így: „Dicső dákgéta Buila nagyvezér Butaul dicső Tagor jász vezér”. Mi ezt étkezésre, ivásra buzdító felhívásnak értelmeztük (hiszen edényről van szó) – és természetesen magyarul: „Falj zsupán étke(t); idogál(j) itóká(t) Böjtölj zsupán, éteket rágj, egyél éteket.” vagy neveket is feltételezve: Béla zsupán étke; idogál itóká(t) Botol/ó/ zsupán éteke(t) rág, eszik éteke(t) vagy Buda alzsupán éteke(t) rág, eszik éteke(t)
+
+
+
+33
+A 9. és 10. sz. csésze görög ábécés, eddig görög nyelvűnek „tekintett” felirata Pataky László szerint magyarul olvasható: „Isten ydgia Yduát mig aniámut Ylona Gillió” = Isten áldja Id(u)át meg anyámat; (a Gyula nemzetséghez tartozó) Ilona. – Megjegyzés: a keresztet tartalmazó Isten-szimbólum rovásligatúraként is „Isten” olvasatot ad. Pataky (Arvisurára utaló) értelmezésében ismét sok a név. A kiolvasott szöveg nem kapcsolódik szorosan a többi felirat „Pataky-féle” olvasatához. Nekünk egyelőre csak a felirat egyes részleteit sikerült magyarul értelmezni. Ennek során a következő magyar szavak felbukkanását figyeltük meg: Isten, id(j)átok (=igyátok), Nap (a Pataky által kiolvasott „M” inkább görög Π–nek tűnik, ezért olvassuk n-a-p-nak), iszok-eszok (=iszok-eszek, azaz iszom-eszem).
+Összefoglalás
+Pataky László mérnök szerint a feliratrészek többségében a Gélyse (Gese, azaz Géza), kenéz (kenész, kenézs), pesenyej (azaz besenyő) és a zsupán (ispán) szavak fordulnak elő, vagy azok részei. Vagyis szinte mindenhol a feltételezett tulajdonos nevét és rangját érhetjük tetten. Írásunkban már jeleztük, hogy Pataky különféle címeket-rangokat értelmezett (pl. senyü, tenyő, kiskán) – ám az olvasat ott is leszűkíthető az előbb ismertetett 5 változatra. Pataky a székely-magyar rovásírás „kiterjesztett jelkészletével” dolgozott, és a „különleges jeleket” is sikerült besorolnia a klasszikus rovásábécé elemei közé. Ezt az ígéretes eljárását most sikerrel továbbfejlesztettük. Pataky László „besenyőül-magyarul” olvasta a nagyszentmiklósi feliratok jeleit. A feliratok magyar voltát egy másik megközelítés segítségével is sikerült megerősíteni. Ennek révén (a görög ábécével írt felirat egy részének kivételével) már mindegyik feliratrészhez tudtunk egy újabb egységes, magyar nyelvű olvasati lehetőséget kínálni. Vékony Gábor ötletét felhasználva (többnyelvű feliratokról van szó, amelyben ételek-italok nevei bukkannak fel) az aranytárgyak feliratait sikerült tisztán magyar nyelvű szövegként (a lakomák, étkezések, ivászatok során gyakran használt ételek-italok magyar nyelvű megnevezéseként) értelmezni.23 A bemutatott magyar nyelvű olvasatok (Pataky László, (részben) Vékony Gábor és Záhonyi András magyar értelmezései) lehetővé teszik, hogy még inkább magyarnak tekintsük a Nagyszentmiklósi Kincset és igyekezzünk minél többször kiállítani Magyarországon, ill. a megtaláláshoz közel, például Temesváron.
+23 Rövid szövegrészek esetén nem meglepő, hogy többféle olvasat is lehetséges. Az is elképzelhető, hogy a feltehetően művelt és játékos kedvű tervező úgy „készítette el” a rovásfeliratokat, hogy azokból a név és a rang, illetve étel- és italnevek is „kiolvashatók” legyenek.
+
+
+
+34
+Függelék
+Forrai Sándor: Az ősi magyar rovásírás az ókortól napjainkig (1994) c. könyve 282. oldalán lévő ábraszámok alapján a feliratok újracsoportosítása: 1a ~ 1b 2 = 3 = 6a része 4a = 10 része 4b = 7a részlete + 2 részlete 5a = 7a + 5b részlete 5b ~ 9 (része) 5c ~ 10 (részlete) 6a = 6b 7a = 7b = 11= 12 =13a 7c = 7a része 8 = 4a része 10 = 9 13b = 5b + 2

@@ -1,0 +1,8 @@
+---
+master_file: "[[@FabianSandorAz]]"
+---
+# Index for Fábián Sándor – I. Az értelem kihívása - 1. Magyarok nem ázsiai kinézettel és békés természettel.pdf
+
+29
+1. Magyarok nem ázsiai kinézettel és békés természettel
+Fiatal koromban a tudomány érdekelt, ezért mentem a Babes Bolyai Egyetemre, a fizika szakra. Aztán hamar csalódtam, mert rájöttem, hogy a korrupció miatt itt nem lehetek csak harmad vagy negyedik hegedűs. Láttam megöregedett görnyedt hátú magyar professzorokat, akiknek a munkája másoknak kamatozott. Két év után otthagytam az egyetemet és elvégeztem egy matematika tanárit a látogatásnélkülin. Így lett pénzem is, szabadságom is. A történelem nem nagyon érdekelt. Azt láttam, hogy általában a gyengébb kapacitású tanulók választják a történelem szakot. Azt viszont soha nem tudtam felfogni, hogy mi magyarok hogy jöhettünk Ázsiából, amikor európai kinézésünk van. Erről vitatkoztam egy volt osztálytársammal vagy harminc évvel ezelőtt, akinek a legfőbb érve az volt, hogy „én büszke vagyok az őseimre, hogy számunkra Hont foglaltak”. Ez a „foglalás” nagyon sértette az igazságérzetemet, ugyanakkor rájöttem, hogy hogyan tudták az embereket manipulálni az érzelmeiken keresztül. Ez után kezdtem érdeklődni a történelem iránt, majd amikor megtaláltam Cser Ferenc és Darai Lajos írásait, akkor már tudtam, hogy jó úton járok. Soha nem állt szándékomba könyvet írni, úgy gondoltam, hamarabb elérem az embereket az interneten. Most kötetbe rendezetten megjelentetve írásaim, sor került egy komoly szelekcióra nagyon szerteágazó kutatási eredményeimben. Meg vagyok győződve, hogy nem mindenben van igazam, amiket írtam, így fenntartom magamnak a jogot, hogy egyeztetések után változtassak.

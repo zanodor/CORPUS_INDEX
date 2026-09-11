@@ -1,0 +1,12 @@
+---
+master_file: "[[@ZahonyiAndrasKonyvbemutato]]"
+---
+# Index for Záhonyi András – Könyvbemutató a 2014-es köyvhéten.pdf
+
+192
+JJEELLEENNÜÜNNKK ((XX..))
+Záhonyi András (Budapest):
+Könyvbemutató a 2014-es Könyvhéten
+A 2014-es Könyvhétre jelent meg a székely-magyar rovásírásról Sándor Klára: A székely írás nyomában. (Typotex, Budapest, 2004.) című könyve. Ismertetője szerint „a székely írás megosztja a közvéleményt: vannak, akik rajongással szeretik, mások viszolyognak tőle, és tévhitek sokasága kavarog körülötte, miközben egy gazdag művelődéstörténeti háttérbe illeszkedik.” Sándor Klára könyvbemutatója – a Könyvhéten túl –a Magyar Tudományos Akadémia Könyvtárában zajlott 2014. június 19-ediként 16:00 órától. A szegedi kutató kétségét fejezte ki az alsóbűi fúvóka feliratával és eddigi olvasataival kapcsolatban, mert lehet például körömlenyomat is. A hangsúlyt arra helyezte, hogy bemutassa: Rovásírásunk miért nem magyar írás? Beszélgetőtársa Vásáry István turkológus volt, aki nemrég így nyilatkozott a Mandiner c. internetes lapnak: „A székely-magyar rovásírás nem része a magyar identitásnak. Nem leszek magyarabb tőle, ha kiírom a nevemet rovásírással.” (http://mandiner.hu/cikk/20140602_rovasiras_nem_leszek_magyarabb_tole) Most a Sándor Klára és Vásáry István beszélgetésének kiszűrhető téziseiből – vitaindítás végett – bemutatunk néhányat, megjegyzésünkkel ellátva, ha kell:  Lehet, hogy a xiung-nu-knak (a hunoknak) nem is volt írásuk;  a Bodrog-Alsóbűn előkerült X. századi fúvóka felirata még megfejtetlen;  a „rovás” üres szó és jelentéssel megtöltése félrevezető;  mindenki joga, hogy azt tegyen a rovásírással, amit akar, állíthat például településjelző táblát sváb falu elé is;  a magyar királyságnak csak kis töredéke volt írástudó (egyetértünk: a latin ábécés írást valóban kevesen ismerték);
+ Magyarországon Mátyás király udvarában, aki „Atilla Secundusnak” nevezte magát, virágzott fel a székely-magyar rovásírás;  a magánhangzók közül a későbbiekben az E és az A kivételével mindet kiírták, végül mindet külön jelölték. (A szóvégi magánhangzó jelentésmegkülönböztető szereppel rendelkezik, ezért azt mindig és minden esetben kiírták).
+Úgy gondoljuk, e tézisek többségét cáfoltuk az itt, jelen folyóiratban fentebb megjelent tanulmányainkban. Egyébként valamiért e két szakember az ELTÉ-n 2014 tavaszán megrendezett rováskurzus előadói közül (Róna-Tas Andrással együtt) nem járult hozzá, hogy előadásaikat a YouTube-on közzétegyék.

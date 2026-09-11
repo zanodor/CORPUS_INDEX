@@ -1,0 +1,16 @@
+---
+master_file: "[[@NogradyMihalyKuruc]]"
+---
+# Index for Nógrády Mihály – A kuruc név eredete és jelentése.pdf
+
+443
+Nógrády Mihály (Ottawa):
+A kuruc név eredete és jelentése
+A kuruc név 1679-ben jelent meg először a beszélt nyelvben.108 A köznép így hívta az osztrák császári hadsereg ellen harcoló katonákat. A szó eredete ismeretlen a magyar tudományos körök szerint.109 Megpróbálták levezetni a ‘kereszt’ jelentésű latin crux-ból mint a keresztes háborúkban résztvevő katonák fennmaradt neve. Ezt a megoldást Bél Mátyás (1684-1749) kezdeményezte és a mai napig népszerű maradt. Azonban az utolsó keresztes háború, ami Dózsa György nevéhez is fűződik, 1514-ben ért véget mielőtt elkezdődött volna. Nagyon kétséges, hogy a kuruc idők nemzedéke emlékezett volna 166 évvel azelőtti elnevezésekre. A szó crux-ból való levezetés nehézségekbe ütközik, ugyanis kiejtése ‘kruksz’, egy u betűt kell behelyezni a szókezdő k után majd a második k kimarad és az sz-ből c lesz, ami előfordul minden nyelvben így a magyarban is. Így lenne a crux-ból kuruc. Az sz–c hangváltozásra vonatkozó példák: Akász–akác; bajuc–bajusz; párdusz–párduc.110 De képes lehet-e az egyszerű nép ilyen bonyolult szóképzésre? Ne felejtsük el, hogy a köznép létezett először nyelvével és névadó szokásaival együtt és csak utána jött a nyelvész jóval később. A nép pedig mindig a beszélt nyelvben létező szavakat használta fel új nevek képzésére. Az is valószínű, hogy a szó nem önelnevezés volt, hanem kívülállók adták nekik. Erre utal, hogy Rákóczi soha sem használta a kuruc kifejezést, pedig az ő harcosai voltak a 17-18. századi Habsburg-ellenes felkelésben. A harcok főleg Erdély északi és a Felvidék keleti részén történtek és résztvevőik az ottani hegyes vidékről származtak. Ez adhat kiinduló pontot a név megfejtéséhez. Kuruc nem jelent semmit olyan értelemben, hogy mi jellemezte a név viselőit. Értelmet csak úgy tudunk adni neki, ha a holtnak és rokontalannak nyilvánított sumér nyelvet hívjuk segítségül. E nyelv szerint a kuruc két elemből álló összetett szó: kur és usz. A KUR jelentése ‘hegy, ország’, de lehet ‘hegyvidék’-nek is értelmezni. Eredeti képjegye a hármashalom.111 A sumér US (leggyakoribb kiejtése usz, de úz-nak is ejthető) jelentése ‘űz, zaklat, gyötör’.112 Az embert jelentő lú egyénhez kapcsolja a szót és akkor ‘katona, fegyveres kísérő’ jelentést kap: lúUŠ.113 (Labat hibásan us-nak írja az usz-t) A kuruc esetében a kur ugyanazt a rendeltetést tölti be mint a lú vagy akármilyen más melléknév vagy jelző. Tehát a kuruc név jelentése ‘hegyi katona’.
+108 Benkő Loránd főszerk. et al. A magyar nyelv történeti-etimológiai szótára. Akadémiai Kiadó 1967. II. kötet, 681. oldal. 109 Ibid. 110 Op. cit. I. kötet, 113, 220 oldalak, III. kötet, 105. oldal. 111 René Labat. Manuel d’épigraphie akkadienne. Kézírat, Paris, 1948. Ékjelszám 366. (Felülvizsgálta és kiadta: Florence Malbran-Labat. Paris: Geuthner Manuels). 112 René Labat, Florence Malbran-Labat. Manuel d’epigraphie akkadienne. Paris: Geuthner Manuels, 1963. Ékjelszám 211 és a 335. oldal. 113 René Labat. Manuel d’epigraphie akkadienne. Kézírat. Paris, 1948. Ékjelszám 211l.
+
+
+
+444
+AZ ŐSI VIÁGKÉP
+ÖRÖKSÉGE (IV/38.)

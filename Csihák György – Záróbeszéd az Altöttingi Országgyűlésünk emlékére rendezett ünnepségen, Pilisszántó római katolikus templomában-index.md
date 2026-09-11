@@ -1,0 +1,58 @@
+---
+master_file: "[[@CsihakGyorgyZarobeszed]]"
+---
+# Index for Csihák György – Záróbeszéd az Altöttingi Országgyűlésünk emlékére rendezett ünnepségen, Pilisszántó római katolikus templomában.pdf
+
+97
+Csihák György (Zürich)
+Záróbeszéd az Altöttingi
+Országgyűlésünk emlékére
+rendezett ünnepségen,
+Pilisszántó római katolikus
+templomában
+Amikor egy kicsi, menekülteket szállító autóbusszal megérkeztünk 1945. nagypéntek napján Halsba, a templom oldalánál éppen tüzet szentelt a pap. Hals, Passau előterében, kicsi városka az Ilz folyó partján. A busz ablakán kitekintve ez volt az első olyan képem Halsról, ami az óta is bennem él. Talán azért, mert néhány hét múltán a templomot több lövés érte, kigyulladt és az egész leégett, a közepe beomlott. Buszunk estefelé indult Nyugat-Magyarországról, mert az út javát sötétben akarták megtenni gondolván, hogy így jobban védve leszünk a repülők támadásától. Emlékszem, amikor átmentünk Bécsújhelyen – az egész olyan volt, mint egy kihalt város: sötét, sehol egy lélek, buszunk is fény nélkül kanyargott a kihalt utcákon. A buszban harminc-negyven menekült volt összezsúfolva, apró csomagokkal. Halsban az iskolába vittek bennünket – a szalmaszobába. Akkor ez igen gyakori szállása volt a menekültnek. A tanteremben szalmát szórtak a földre, azon vackolódott ki-ki, amint tudott. Segített egy lepedő, egy pokróc, vagy éppen egy kabát. Talán egy jó hét múltán megérkezett a csomagjainkat szállító néhány szekér, ha jól emlékszem a mi csomagjaink épségben megérkeztek. Főleg ruhanemű volt – számítva arra, hogy ha egyszer előkerülnek a többi családtagok, sebesülten, véresen, reménytelenül piszkosan, mosdatlanul, netán tetvesen – akkor hamarosan tudjanak legalább valamelyest emberi módra felöltözni. Egy napon valami furcsa dolgokra lettünk figyelmesek. Izgatottan gyűltünk az ablakokhoz, figyelve, hogy mi történik előttünk, odalent a téren. Iskolánk
+
+
+
+98
+előtt egy nagyobb terecske volt, annak egyik oldalát képezte iskolánk. A térre négy irányból négy utcácska igyekezett. Jobbról egy a templommal – onnan jöttünk. Balról, a szögletben, kissé lejtve a tér felé a másik, elől a bal sarokban egy út igyekezett az Ilz folyócska partjára, a terecske velünk szemben lévő jobb sarkából egy egyenes út szolgált a folyócska fölött átigyekvő kis híd irányába.
+Csihák György előadását tartja
+Az izgalmat az okozta, hogy a felkelő nap fényében, a téren felsorakozott a német haderő. Valami öt-hat, szomorú emberke, szürkészöld, nehéz daróc ruhában, nagy csizmában, fején a vaskalap, hátán hatalmas hátizsák. Az egész idő alatt az volt az érzésem, hogy abban viselik valahogyan az egész háború minden terhét. Valahonnan előkerült egy tisztféle, aki kiosztotta a muníciót: kapott minden katona egy tár töltényt. Ha jól emlékszem, négy, vagy öt lövedék volt benne, ezzel kellett vívják tovább az addigi történelem legnagyobb háborúját. A töltény használata úgy történt, hogy a puska zárját fel kellett nyitni és hátra húzni. Az üressé vált helyre be kellett nyomni, lefelé a tárat a lövedékekkel és a zárat vissza kellett tolni, majd lefordítani. Amikor lőni akart az ember, akkor a zárat felfelé kellett fordítani, hátrahúzni, miáltal egy lövedéknek helye lett a cső előtt. Akkor vissza kellett tolni a zárat, miáltal a lövedék a csőbe került, majd lezárni, és ha lőni akart a katona, akkor a ravaszt meghúzni. Ha a zárat ismét felhajtotta
+
+
+
+99
+és hátra húzta, akkor az elhasznált töltény hüvelye kiugrott és alulról a helyébe csúszott a következő lövedék. Ily módon felkészülve a nagy harcra, katonáink egyesével elindultak a hidacska felé és átmentek a túloldalra. A szalmaszobában a mi helyünk a ház szélénél volt, így a legszélső ablakból pontosan láttuk a katonákat átmenni, no meg azt, hogy egyesek a híd körül valamit matattak. Ezt már megfigyeltük az előző napon is, amiből most arra következtettünk, hogy fel akarják robbantani, ami hamarosan meg is történt. A hidacska középen összeomlott, ami az egész háború kimenetele szempontjából is nyilván jelentős hadműveleti esemény volt. Mi az ablakban, úgy száz méterre a világháború sorsát ily módon is eldöntő nagyérdemű eseményétől, éppen csak megijedtünk. Attól kezdve csak arra emlékszem, hogy a folyó másik oldalán hatalmas hátizsákokat láttunk imbolyogni. Kis idő múltán, balról, a lejtős úton feltűntek valami idegen, eddig nem látott katonák. Könnyű keki öltözetben, puha, magas szárú cipőben, vaskalaposan, egyetlen puskával, amit előre tartva, óvatosan lépkedtek a fal mellett. A térre érvén megállapították, hogy nincs ellenség, kényelmesen cigarettára gyújtottak és beszélgetni kezdtek. Egyikük később odament a tér jobb szélén lévő ház sarkához és kikémlelt a túlpart irányába. Mi az ablakból, talán többet láttunk, de ő feltehetően nem sokat. Onnan hátrakiabált a többieknek, valamit, azok meg vissza. Egyszer ismét kikukucskált és elkezdett átelembe kiabálni és integetni. Semmi válasz. Akkor gyorsan lőtt néhányat abba az irányba. Csak húzkodni kellett a ravaszt és láttuk mindég, amint a lövedék hüvelye közben kiugrál a puskából. Ismét kiabált, integetett, kényelmesen lőtt néhányat. Semmi. Csak mi láttunk a túloldalon mocorogni néhány hátizsákot. Egyszer csak berobogott a térre egy dzsip. Ekkor láttuk először, de később már itthon ismerősként üdvözöltük – hiszen akkortályt az oroszok is ilyenekkel járkáltak. Az autó körül élénk mozgolódás támadt – de akkora már mi, gyermekek kimerészkedtünk a házból, odamentünk és láttuk, hogy tejeskávét főztek, elővették a nagy fehér, csomagolt, szeletekre vágott, édes amerikai kenyeret, amire narancsdzsemet tettek, jóízűen lakmároztak és részeltettek bennünket is. Narancsot ettünk régebben – de narancslekvárt még soha. Kaptunk utóbb még csokoládét – és rágógumit, amit viszont meg kellett mutassák, hogy mire való persze azonnal megértettünk. Idővel néhány katona bejött az iskolába. Nem volt semmi izgalom, egyszerűen besétáltak és minden férfit kitessékeltek a térre. Ott sorba állították őket, mindenki a lába elé kellett tegyen mindent a zsebéből, a karjáról az óráját, az ujjáról gyűrűjét és így tovább. Valaki végignézte az egészet, és ha jól emlékszem az igazolványát mindenki eltehette. Egyszerre berobogott egy GMC teherautó – ilyet is láttunk utóbb eleget, hiszen az oroszoknak is csak az volt. A teherautóra fölszálltak a férfiaink, a holmijukkal nem emlékszem mi lett. Évtizedek múltán, amikor ismét éltem Németországban hallottam, hogy ott is rendjén volt, hogy még az ötvenes évek elején is jöttek haza foglyok az amerikai Appalache hegység szénbányáiból, francia meg belga bányákból.
+
+
+
+100
+Alig most fél éve esett, hogy az itt szereplő Szőnyi Józsefnek mutattam egy levelet, amit Münchenből írt nekünk most egy hölgy, aki ott volt a zarándoklaton és leírta családja történetét. Feleségemmel sírtunk, amikor olvastuk. Midőn Szőnyi József olvasta, egyszerre rám nézett és kérdezte: „Te Gyuri, hát az amerikaiak is ilyenek voltak?” Idő múltán hallottuk, hogy vége a háborúnak – és mindenki próbált élni, ahogyan tudott. Ha megdöglött egy ló, akkor ettünk lóhúst. Az arra sétáló amerikai katonák néha szórakozásból bedobtak egy gránátot a vízbe, hamarosan tele lett a folyó fehér hasú – döglött – hallal. Kifogunk amennyit tudtunk és akkor ettünk halat is. Egy helyi gazdának az az ötlete támadt, hogy volt egy lapos, gumikerekű kocsija, befogott eléje két lovacskát, a kocsira tett két padot, amin elfért vagy tíz-tizenkét ember és valami ellenszolgáltatásért bekocsizott velük Passzaúba. Ott voltak hivatalok, ahol lehetett érdeklődni a helyzetről, keresni az elveszett hozzátartozót, megpróbálni valahová levelet küldeni a vöröskereszt által. Voltak névsorok foglyokról, elesett katonákról, hírek a hazából. Lehetett valami élelmiszerhez és más hasznos dologhoz jutni. Ott láttam először, amint egy amerikai katona – fehér MP volt ráírva, tehát katonai rendőr – amint irányította a forgalmat és ha kinyújtotta a karját, akkor látható volt mindkét csuklóján három-négy karóra. El sem tudtam képzelni, hogy minek egy katonának ennyi karóra? Utóbb rájöttem erre is. Örömömre szolgált, hogy évtizedek múltán, amikor, mint svájci menekült éltem feleségemmel, ellátogathattunk Halsba. Megmutathattam neki azt a kis házat, ahol egy ideig éltünk, ahol feleségem eközben megetetett egy, a folyócskán békésen vitorlázgató szép fehér hattyút. Utunkban odafelé megállapodtunk egy kis bajor falucska fogadójában azzal a szándékkal, hogy ott megvacsorázunk és megszállunk. Kérdésünkre a fogadós közölte, hogy nincs szabad szobája – mint utóbb kiderült, látta autónkon a svájci rendszámot. A közelünkben ülő vendégek hallhatták, hogy egymás között nem svájciul beszélünk, mire a fogadós megkérdezte, hogy miféle nép vagyunk? Amikor megtudta, hogy magyarokkal van dolga, egyszeriben rájött, hogy mégis van kiadó szobája. Vasárnap mindég misére mentünk. Utóbb nem a templomba, hiszen romba dőlt, hanem volt a temetőben egy kisebb kápolna, oda. Valamely oknál fogva, már az előzőekben, a templomban is mindég édesanyám orgonált. A mise végén énekeltük ősi magyar himnuszunkat, könyörögve Boldogasszony Anyánkhoz, régi nagy patrónánkhoz. Senki nem állt fel, amíg énekünk be nem fejeződött és mindenki sírt. Még mi, gyermekek is igen megilletődtünk. Sírtak a németek is. Egy idős házaspárral összebarátkoztunk és kérdeztük tőlük, hogy ők miért sírnak? Azt nyílván értették, hogy mi a patrónához fohászkodunk, de ők miért sírnak? Mert neki három fiuk - volt. Mondták. Kettő eleset, a harmadikról semmit sem tudnak. Boldogasszony Anyánk... A mi családunkat is szétkergette a vihar és csak utóbb tudtuk meg, hogy volt, aki csak néhány héttel járt előttünk a – tőlünk talán harminc kilométerre lévő - pokingi táborban, ahonnan utóbb mi is hazafelé vettük utunk.
+
+
+
+101
+Így éltünk akkor, és nehezen felejtettük az ágyúdörgést, a templomi tüzet. Még emlékeztünk a budapesti bombatámadásokra, amikor süvített a bomba, becsapódott és nagyot robbant. Miután előjöttünk az óvóhelyről, mindenfelé romokat, szétmarcangolt emberi tetemeket láttunk, némelyikre, mint néhai ismerősre, így is ráismertünk. Amikor az amerikai bombázók még csak repültek felettünk, az épületek már akkor is remegtek. Már régen a béke napjait éltünk, de még akkor is hallani és látni véltük mindezt. Felejteni nem volt könnyű, hiszen mindenütt idegen katonák, a győztesek voltak körülöttünk. Így éltünk. A mai, boldog idők gyermekei erre nem kell emlékezzenek. De talán megértik, hogy milyen tett volt akkor, egy hatalmas zarándoklat és milyen tett volt akkor, hogy a demokratikusan utoljára szabadon megválasztott országgyűlésünk még egyszer, összejött. Milyen tett volt ez akkor, kimondani, hogy mindent elítélünk, ami a szörnyűségek terrorja alatt történt. Még Svájcban is meghaltak emberek koncentrációs táborban, még Svájcból is küldtek bitófára odamenekült embereket. Nem csak tisztességes, de bátor hősök voltak az Altöttingi Országgyűlésünk résztvevői, akik még egyszer és utoljára kimondták, hogy nekünk több mint ezer éve van írott alkotmányunk, hogy nekünk van és maradt apostoli királyságunk, hogy a mi koronánk jogfolytonossága fönnáll. Emlékezzünk, hogy ne felejtsünk! Isten áld meg a magyart.
+A második világháború során figyelmeztették Sztálint, hogy a pápa is egy nagyhatalom. Mire Sztálin visszakérdezte: „Hány hadosztálya van a pápának?” Ami igazolni látszik azt, hogy a nyers erőszak létezik, amitől tartani kell - de igazolja azt is, hogy van más hatalom is. Ezt a kis történetet azért illesztettem ide, mert ma itt a magyarok egyik legnagyobb, - ha nem a legnagyobb történelmi eseményére emlékezünk és sajnos több minden félrecsúszott. Sajnálom.
+
+
+
+102
+A hallgatóság
+
+
+
+103
+Gedai István és Csámpai Ottó
+
+
+
+104
+Gedai, Csámpai és Csihák
+Ugyanők
+
+
+
+105
+Az ülésnek vége
+Búcsúzkodás

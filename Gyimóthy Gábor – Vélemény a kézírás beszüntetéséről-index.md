@@ -1,0 +1,10 @@
+---
+master_file: "[[@GyimothyGaborVelemeny]]"
+---
+# Index for Gyimóthy Gábor – Vélemény a kézírás beszüntetéséről.pdf
+
+270
+Gyimóthy Gábor (Horgen/CH):
+Vélemény a kézírás megszüntetéséről
+A kézírás beszüntetéséről itt, Svájcban is szó van. Erről sok mindent lehetne írni ám az eddigi véleményeket röviden csak két szemponttal szeretném kiegészíteni. Az egyik az, hogy akik ezt ma elhatározták, abból a meggondolásból kiindulva, hogy minek olyasmit tanítani, amit aztán úgysem használunk (hiszen a kőbalta készítést sem tanítják sehol), azok a ma még beláthatatlan hátrányokra akkor fognak rádöbbenni, ha már felnőtt egy nemzedék, amely nem tud írni! Az a szomorú, hogy erre nem csak ők fognak rádöbbenni, hanem mi is, akik ellenezzük azt, amit elhatároztak. A belátható hátrányokról elég szó esik, de azoknak egy részét ellensúlyozni tudják a belátható előnyök. Mellesleg, sok értelmét mégsem látom a folyamatos (zsinór-) írás eltörlésének, hiszen a betűket mégiscsak meg kell tanulni. A másik szempont, ami miatt felelőtlennek tartom ezt az elhatározást, az a félelmem, hogy a nem-írás a gondolkozás módját meg fogja változtatni. Ha kézzel írok egy szöveget, akkor a leírtak javíthatatlansága kényszerít a gondolataim rendezésére és messzemenő előre-megfontolására, tehát hozzászoktat a pontosságra, szabatosságra és a leírnivalóim részletes átgondolására. Ez még az írógéppel való írásnál is így volt, mert az utólagos javítási lehetőségek ott is erősen korlátozottak voltak. Ha a számítógépen írom a szövegeimet, akkor ott a leírtak teljes átírására, a mondatok átalakítására, “csiszolására” megvan a lehetőség, ami fölöslegessé teszi a szöveg pontos előtervezését. Persze ennek az előtervezési készségnek az eléréséhez nem elég megtanulni a folyamatos írást, hanem ahhoz a folyamatos írással történő, hosszú szövegek írását gyakorolni is kellene, mint ahogy az régen természetes volt. Ennek az elmaradása gondolkodási pongyolasághoz fog vezetni, ami aztán a beszélt nyelv további romlását vonja majd maga után.
+2015. január 18.
