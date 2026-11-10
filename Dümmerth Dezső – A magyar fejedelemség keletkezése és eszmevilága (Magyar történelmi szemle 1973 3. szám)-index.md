@@ -1,7 +1,7 @@
 ---
 master_file: "[[@DummerthDezsoMagyar]]"
 ---
-# Index for Dümmerth Dezső – A magyar fejedelemség keletkezése és eszmevilága – Magyar történelmi szemle 1973 3. szám.pdf
+# Index for Dümmerth Dezső – A magyar fejedelemség keletkezése és eszmevilága (Magyar történelmi szemle 1973 3. szám).pdf
 
 A M A G Y A R FEJEDELEM SÉG KELETKEZÉSE ÉS ESZM EVILÁGA
 (KIEGÉSZÍTÉS A FILOLÓGIAI KÖZLÖNYBEN MEGJELENT, ÁLMOS FEJEDELEMRŐL SZÓLÓ TANULMÁNYHOZ.)

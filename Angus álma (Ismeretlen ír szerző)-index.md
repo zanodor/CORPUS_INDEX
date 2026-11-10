@@ -1,7 +1,7 @@
 ---
 master_file: "[[@AngusAlma]]"
 ---
-# Index for Angus álma.pdf
+# Index for Angus álma (Ismeretlen ír szerző).pdf
 
 233
 Ismeretlen ír szerző (8. század körül): Angus álma305

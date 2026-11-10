@@ -1,7 +1,7 @@
 ---
 master_file: "[[@YuvalNoahHarari]]"
 ---
-# Index for Yuval Noah Harari – Az emberiség rövid története.pdf
+# Index for Yuval Noah Harari – Sapiens - Az emberiség rövid története.pdf
 
 Yuval Noah Harari
 SAPIENS Az emberiség rövid története

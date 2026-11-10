@@ -1,7 +1,7 @@
 ---
 master_file: "[[@PaulLendvaiAnn]]"
 ---
-# Index for Paul Lendvai, Ann Major-The Hungarians _ a thousand years of victory in defeat-Princeton University Press (2003).pdf
+# Index for Paul Lendvai, Ann Major – The Hungarians - A Thousand Years of Victory in Defeat.pdf
 
 The Hungarians
 

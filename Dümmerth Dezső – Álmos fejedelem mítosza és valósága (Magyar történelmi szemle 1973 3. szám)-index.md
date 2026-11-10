@@ -1,7 +1,7 @@
 ---
 master_file: "[[@DummerthDezsoAlmos]]"
 ---
-# Index for Dümmerth Dezső – Álmos fejedelem mítosza és valósága – Magyar történelmi szemle 1973 3. szám.pdf
+# Index for Dümmerth Dezső – Álmos fejedelem mítosza és valósága (Magyar történelmi szemle 1973 3. szám).pdf
 
 ÁLMOS F E JE D E L E M MÍTOSZA ÉS VALÓSÁGA
 D í MMERTH DEZSŐ
